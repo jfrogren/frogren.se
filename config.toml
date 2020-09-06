@@ -1,4 +1,4 @@
-baseURL = "https://laughing-blackwell-971d9c.netlify.app/"
-languageCode = "en-us"
-title = "My New Hugo Site"
+baseURL = "https://www.frogren.se/"
+languageCode = "sv"
+title = "frogren.se"
 theme = "ezhil"
