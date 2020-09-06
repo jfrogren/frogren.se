@@ -8,6 +8,7 @@ Från skivan: Brustna Hjärtans hotell <br>
 Text: Mats G. Bengtsson, Musik: Blå Tåget <br>
 
 
+
 Här är en man som ej i smoking klär <br>
 en sliten rock han dock salongsvant bär <br>
 Åh snart den faller som i en strip-teas <br>
@@ -17,8 +18,6 @@ fast mer med djup och tårfylld sympati <br>
 Så brister han i ren anständighet <br>
 hans nakenhet av tårar skyls diskret <br>
 Nåväl jag skall fatta mig mycket kort <br>
-
-
 På ett café av allra värsta sort <br>
 Min ångerst sövde jag en höstlig natt <br>
 med sprit och cigarett jag ensam satt <br>
