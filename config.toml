@@ -16,7 +16,7 @@ disqusShortname = "ezhil-demo"
 summaryLength = 20
 
 [params]
-	subtitle = "— där jag samlar mina intryck av sånt som ger avtryck"
+	subtitle = "— där jag samlar mina intryck av sånt som gör avtryck"
 	disableDisqusTypes = ["page"]
 	featherIconsCDN = true
 	mode = "auto" # "dark", "auto", "light"
@@ -25,29 +25,34 @@ summaryLength = 20
 	# customJS = ["https://code.jquery.com/jquery-3.4.1.js", "js/custom1.js"]  # Custom JS scripts.
 
 [[menu.main]]
-name = "Hem"
-url = "/"
+name = "Om"
+url = "/about"
 weight = 1
 
 [[menu.main]]
-name = "Skrivet"
+name = "Noteringar"
 url = "/posts"
 weight = 2
 
 [[menu.main]]
-name = "Om"
+name = "Texter"
 url = "/about"
 weight = 3
 
 [[menu.main]]
-name = "Nyckelord"
+name = "Taggar"
 url = "/tags"
 weight = 4
+
+[[menu.main]]
+name = "Nu"
+url = "/about"
+weight = 5
 
 [[params.social]]
 name = "Github"
 icon = "github"
-url = "https://github.com/vividvilla/ezhil"
+url = "https://github.com/jfrogren"
 
 [[params.social]]
 name = "RSS"
