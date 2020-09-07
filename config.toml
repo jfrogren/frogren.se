@@ -16,7 +16,7 @@ disqusShortname = "ezhil-demo"
 summaryLength = 20
 
 [params]
-	subtitle = "Clean and minimal personal [blog theme for Hugo](https://github.com/vividvilla/ezhil)"
+	subtitle = "— där jag samlar mina intryck av sånt som ger avtryck"
 	disableDisqusTypes = ["page"]
 	featherIconsCDN = true
 	mode = "auto" # "dark", "auto", "light"
@@ -25,22 +25,22 @@ summaryLength = 20
 	# customJS = ["https://code.jquery.com/jquery-3.4.1.js", "js/custom1.js"]  # Custom JS scripts.
 
 [[menu.main]]
-name = "Home"
+name = "Hem"
 url = "/"
 weight = 1
 
 [[menu.main]]
-name = "All posts"
+name = "Skrivet"
 url = "/posts"
 weight = 2
 
 [[menu.main]]
-name = "About"
+name = "Om"
 url = "/about"
 weight = 3
 
 [[menu.main]]
-name = "Tags"
+name = "Nyckelord"
 url = "/tags"
 weight = 4
 
