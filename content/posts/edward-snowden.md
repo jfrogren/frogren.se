@@ -1,7 +1,7 @@
 ---
 title: "Edward Snowden"
 date: 2020-09-07T23:35:44+02:00
-draft: true
+draft: false
 ---
 
 I kväll lyssnade jag på ett samtal mellan Joe Rogan och Edward Snowden.
