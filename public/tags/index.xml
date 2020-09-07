@@ -1,0 +1,43 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Tags on frogren.se</title>
+    <link>https://www.frogren.se/tags/</link>
+    <description>Recent content in Tags on frogren.se</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>sv</language>
+    <copyright>© Copyright notice</copyright>
+    <lastBuildDate>Wed, 30 Aug 2017 01:53:34 +0800</lastBuildDate>
+    
+	<atom:link href="https://www.frogren.se/tags/index.xml" rel="self" type="application/rss+xml" />
+    
+    
+    <item>
+      <title>preview</title>
+      <link>https://www.frogren.se/tags/preview/</link>
+      <pubDate>Wed, 30 Aug 2017 01:53:34 +0800</pubDate>
+      
+      <guid>https://www.frogren.se/tags/preview/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>tag-4</title>
+      <link>https://www.frogren.se/tags/tag-4/</link>
+      <pubDate>Wed, 30 Aug 2017 01:53:34 +0800</pubDate>
+      
+      <guid>https://www.frogren.se/tags/tag-4/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>日本語</title>
+      <link>https://www.frogren.se/tags/%E6%97%A5%E6%9C%AC%E8%AA%9E/</link>
+      <pubDate>Wed, 30 Aug 2017 01:53:34 +0800</pubDate>
+      
+      <guid>https://www.frogren.se/tags/%E6%97%A5%E6%9C%AC%E8%AA%9E/</guid>
+      <description></description>
+    </item>
+    
+  </channel>
+</rss>
