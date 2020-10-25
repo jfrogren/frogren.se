@@ -1,7 +1,7 @@
 baseURL = "https://www.frogren.se/"
 languageCode = "sv"
 title = "frogren.se"
-theme = "aliquote"
+theme = "ezhil"
 paginate = 5
 
 copyright = "© Copyright notice"
