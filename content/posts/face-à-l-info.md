@@ -6,7 +6,7 @@ draft: false
 
 Programmet heter *Face à l'info* och kanalen heter *Cnews* och det är en person som heter Christine Kelly som leder det. I detta program möter journalisten och författaren Éric Zemmour olika personer varje vardag kl. 19 för ett entimmes samtal. Jag såg fredagens avsnitt (23/10) där Éric Zemmour förde samtal med filosofen Michel Onfray och det var glädjande att se en diskussionen som höll en så hög intellektuell nivå och där parterna verkligen respekterade och lyssnade på varandra.
 
-{{ youtube U9v9sMSImlg }}
+{{< youtube U9v9sMSImlg >}}
 
 Michel Onfray sa bland annat i samtalet att han håller med Samuel Huntington om en idé som han påstår återfinns redan hos Malraux nämligen att:
 
