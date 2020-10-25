@@ -1571,7 +1571,343 @@ https://www.theguardian.com/commentisfree/2015/mar/01/what-draws-jihadis-to-isis
 > This raises a painful question: Can true Muslims only be either militants or hypocrites? Is there no other alternative? And that’s where the solution must begin. The only way to find an alternative – “third way”, so to speak – is to move away from literalism and absolute interpretations. Muslims must ask themselves why Jews don’t still stone adulterers or Christians still conduct witch burnings. They made these changes, not by rewriting holy texts, but by reinterpreting them for a different time and context. If Islam and its texts are indeed “guidance for all times” as Muslims believe, surely their interpretation must change with changing times, or they will become obsolete. What we see unfolding before us is the refusal of a whole faith to recognize the fact of such obsolescence and the need for reinterpretation, which has to be the first step on the path to reformation. And this cannot be done by outsiders preaching humanism at Muslims; it requires Muslims themselves to liberate their faith from the clutches of regressive clerics and begin viewing it more rationally. They can continue to be good Muslims and revere the unchanging words of scripture, but they cannot continue to be literalist reactionaries enforcing orthodoxy by force. That just isn’t compatible with the real world – especially the modern world. People will have to be allowed to make individual decisions with regard to their faith and live! In other words, religion will need to become a private matter, and certainly not something for the State to legislate or vigilantes to enforce."
 http://brownpundits.blogspot.com/2015/01/unreal-islam.html?m=1&fbclid=IwAR1ln6Teo0P2flq5rsxc1Wri6EkyOolz2sONpIoVnGyKvK2RsBuguuPVPcA
 
-## 3 februari
+
+> "Under krigen mot Irak i 2003 ble Iraks Nasjonalmuseum plyndret og vandalisert. Tusenvis av objekter og kunstgjenstander fra menneskehetens tidligste historie ble borte over natten. For å sette katastrofen i perspektiv, har forskere sammenlignet det som skjedde med at Louvre ble tømt og ødelagt i løpet av en dag, og at alt museet hadde huset ble solgt til samlere umiddelbart etterpå."
+> "Hendelsene i Bagdad har et politisk bakteppe som tegner en mastodontisk dramatisk bue, fra menneskehetens begynnelse til vår tid. I Hans Petter Blads diktsamling får museumsgjenstandene selv anledning til å føre ordet, men fortellingen omfatter også plyndrerne, kjøperne, museumsvokterne, militæret, de som forsøkte å bygge opp igjen museet og de som fant gjenstandene og forsøkte å bringe dem tillbake."
+http://www.flammeforlag.no/katalog/f199/?fbclid=IwAR2jQqu0LkQW0Bz3PPpJyizQDQFnxDUu2qjdxzaCY0gVqf3PYKpSyydvy7Q
+http://www.vagant.no/tingenes-tale/?fbclid=IwAR3aJbZH4l29rwioJPkxVj1NlU-ParQR8aNQHSzO-rlOy_97JLdmt2HXYRU
+
+
+## 19 mars 2015
+
+https://www.theguardian.com/books/2014/sep/05/margaret-atwood-new-work-unseen-century-future-library?CMP=share_btn_fb
+
+Too critical? Thanks for the compliment!
+https://www.newyorker.com/books/page-turner/brief-thoughts-on-arrogance?fbclid=IwAR17c3a4RE7Z_YFnl6Zu5twaBXHSnBvRAZDp2InU4YGHq9Lmm3yFnu-yAhw
+
+## 18 mars 2015
+
+Mawuna Koutonin, who wrote the article about 'Expats' in the Guardian recently, explains what he means by "White". Here is a more recent article by her:
+https://siliconafrica.com/panafricanism-is-dead/
+
+The Plain Sense of Things
+
+After the leaves have fallen, we return
+To a plain sense of things. It is as if
+We had come to an end of the imagination,
+Inanimate in an inert savoir.
+It is difficult even to choose the adjective
+For this blank cold, this sadness without cause.
+The great structure has become a minor house.
+No turban walks across the lessened floors.
+The greenhouse never so badly needed paint.
+The chimney is fifty years old and slants to one side.
+A fantastic effort has failed, a repetition
+In a repetitiousness of men and flies.
+Yet the absence of the imagination had
+Itself to be imagined. The great pond,
+The plain sense of it, without reflections, leaves,
+Mud, water like dirty glass, expressing silence
+Of a sort, silence of a rat come out to see,
+The great pond and its waste of the lilies, all this
+Had to be imagined as an inevitable knowledge,
+Required, as a necessity requires.
+- Wallace Stevens (1879-1955)
+
+
+Tingens enkla mening
+
+När löven fallit återvänder vi
+Till tingens enkla mening. Det är som om
+Våra föreställningar till slut tömts ut,
+Själlösa i ett tomt savoir.
+Det är svårt att hitta ett adjektiv
+För den tomma kylan, besvikelsen utan orsak.
+Av palatset har blivit en utkantsvilla.
+Inga turbaner sneddar över de krympta golven.
+Växthuset borde ha målats om för längesen.
+Skorstenen har börjat luta efter femti år.
+En fantastisk ambition har slagit fel, igen,
+I en blind upprepning av människor och flugor.
+Ändå kunde frånvaron av föreställningar aldrig
+Bli mer än en föreställning. Den stora dammen,
+Den enkla meningen med den, utan speglingar, löv,
+Dy, vatten som smutsigt glas, en uttryckt tystnad
+Av något slag, en råttas tystnad när hon tittar
+På den stora dammen, resterna av liljor, allt detta
+Måste vi föreställa oss som en obestridlig kunskap,
+Oumbärlig. Som det nödvändiga är oumbärligt.
+- Tolkning till svenska: Ulf Linde (1929-2013)
+
+
+
+10 maj 1994
+Hörde ikväll om din död vid en timme
+då dagen nästan stannade upp i frid
+men under en annan himmel förflöt en annan tid
+sprängdes ljuset och du försvann
+här i min skymning gnistrar ännu det gamla
+    fullödiga livet
+och käbblar det bordlagda köttet med anden
+en förundrad musa inväntar mörkret och flätar
+ännu en kråka och en näktergal mellan raderna
+inget har varat för inget nu när inget mer rör sig
+för gott är du fastlagd i ditt språk 
+och dina tecken
+i vad du alltmer högljutt och totalt förtiger -
+- Gerrit Kouwenaar (1923-2014)
+
+
+Cabbage
+
+She was about to chop the head
+In half,
+But I made her reconsider
+By telling her:
+“Cabbage symbolizes mysterious love.”
+Or so said one Charles Fourier,
+Who said many other strange and wonderful things,
+So that people called him mad behind his back,
+Whereupon I kissed the back of her neck,
+Ever so gently,
+Whereupon she cut the cabbage in two 
+With a single stroke of her knife.
+- Charles Simić (b. 1938)
+----------------------------
+Kålhuvud
+
+Hon skulle just klyva huvudet
+mitt itu
+men jag fick henne att tänka om
+genom att säga:
+"Kålhuvudet symboliserar kärlekens gåta".
+Det hävdar i varje fall Charles Fourier
+som sa många andra egendomliga, underbara ting
+så att folk kallade honom galen bakom hans rygg,
+varefter jag kysste henne i nacken
+så ömt jag någonsin kunde,
+varefter hon klöv kålhuvudet mitt itu
+med ett enda hugg av kniven.
+Svensk översättning: Lasse Söderberg
+
+## 17 mars 2015
+https://www.dixikon.se/anne-goyen-arbres-soyez-3/
+
+## 16 mars 2015
+Song celebrating the four main rivers of Bangladesh: Padma, Meghna, Jamuna and Shurama.
+Ei Padma Ei Meghna -- Farida Parveen
+https://www.youtube.com/watch?v=rdGCnB1Zcqo
+
+From Paper State to Caliphate: The Ideology of the Islamic State
+https://www.brookings.edu/wp-content/uploads/2016/06/The-ideology-of-the-Islamic-State.pdf
+
+You can't draw Muhammad — unless you're one of many Muslim artists who did
+https://www.pri.org/stories/2015-01-15/you-cant-draw-muhammad-unless-youre-one-many-muslim-artists-who-did?fbclid=IwAR1oSv2UHYp-6IPX8CJJo-uBmKVs7DUHnzWjN_z0q31xc9nTUDguu_c6qPE
+
+
+"Vi var den amerikanska drömmen, fast i Uppsala, tungomålstalande, med evigheten som blodröd fond."
+https://www.hd.se/2015-03-15/vi-de-utvalda
+
+https://www.theparisreview.org/blog/2015/03/11/a-very-normal-person/?fbclid=IwAR0b3kJ6I1QAps_Ml5UeUSOuXubBoiQPVutVhWFtlaDJHfAmdrv2Ox6J3nc#.VQb-jmGBbIM.facebook
+
+
+Det eviga tjatet - Malcom Kyeyune
+https://www.arbetaren.se/2015/03/15/det-eviga-tjatet/
+
+## 14 mars 2015
+
+Hypnotic music from northern Greece.
+https://www.youtube.com/watch?v=faOH0oni7NA&feature=youtu.be&fbclid=IwAR3yNT9S6FMDRYzqrhHG-tuB8CEf3YW1zgu7c2wQWDcGLZsDosFJZmXL464
+
+https://www.youtube.com/watch?v=xMBPXFGIMvU&fbclid=IwAR1bWZlduWFwVs8HCn8WzZmGfgJGi866Wd2DBA1S2eQhy6dicCDQwCZ4Btg
+
+> "In university courses as conceived and followed in the West, Arab philosophy is generally left to departments of Oriental studies which themselves are considered of only marginal importance within the universities."
+> "If this state of affairs is to be rectified, a scientific revision must be undertaken of the overall history of the cultural climate of the Mediterranean during the Middle Ages, involving philosophy, theology and the history of the sciences." 
+> "This is the lesson that emerges from the works of the two great mediators [Ibn Rushd (1126-1198) and Mūsā ibn Maymūn (1135-1204), more commonly known in the West as Averroës and Maimonides] whom I have all too briefly presented here."
+- Mohammed Arkoun (1928-2010)
+
+https://simerg.com/literary-readings/averroes-and-maimonides-masterminds-of-12th-century-medieval-thought/?fbclid=IwAR17c3a4RE7Z_YFnl6Zu5twaBXHSnBvRAZDp2InU4YGHq9Lmm3yFnu-yAhw
+
+Why are white people expats when the rest of us are immigrants? - Mawuna Remarque Koutonin
+https://www.theguardian.com/global-development-professionals-network/2015/mar/13/white-people-expats-immigrants-migration?CMP=share_btn_fb
+
+> “Given that it was so heavily bombed in the second world war, Berlin can look like most other European cities above ground. But under the surface there is all this amazing history”
+
+https://www.theguardian.com/cities/2015/mar/11/berlin-u-bahn-typography-history-city?CMP=share_btn_fb
+
+## 13 mars 2015
+
+> “People want to be loved; failing that admired; failing that feared; failing that hated and despised. They want to evoke some sort of sentiment. The soul shudders before oblivion and seeks connection at any price.” 
+
+> "Nous voulons tous être aimés, à défaut, être admirés, à défaut, être haïs et méprisés. Nous voulons éveiller une émotion chez autrui quelle qu'elle soit. L'âme frissonne devant le vide et recherche le contact à n'importe quel prix."
+
+> “Man vill bli älskad, i brist därpå beundrad, i brist därpå fruktad, i brist därpå avskydd och föraktad. Man vill ingiva människorna något slags känsla. Själen ryser för tomrummet och vill kontakt till vad pris som helst.” 
+― Hjalmar Söderberg (1869-1941)
+
+## 12 mars 2015
+
+> "L'humanisme c'est une attitude ouverte à tout ce que l'homme produit dans son existence. Et l'homme, c'est ne pas seulement l'homme de mon pays. C'est ne pas seulement l'homme de ma religion. C'est LES hommes. Je suis intéressé par tout ce qui touche l'homme, et c'est le souci de l'homme pour l'homme, le souci de l'homme pour l'émancipation de la condition humaine toute entière. Je ne peut jamais me satisfaire de ce qui m'appartient à moi dans ma nation ou dans ma communauté religieuse. C'est ça l'humanisme."
+- Mohammed Arkoun (1928-2010)
+https://www.youtube.com/watch?v=XoTBuw6fpWA&sns=fb&fbclid=IwAR0emg4WM2CZbQT2KT3f-BI4LmhrybzdmdZZpR2d93hjCweHzf07iDvvAXM
+
+> "What is really racist is the idea that only nice white liberals want to challenge religion or can handle satire. Those who claim that it is ‘racist’ to mock the Prophet Mohammad, appear to imagine, with the racists, that all Muslims are reactionaries. Leftwing ‘anti-racism’ here joins hands with rightwing anti-Muslim bigotry."
+
+https://kenanmalik.com/2015/03/11/i-believe-in-free-speech-but/?fbclid=IwAR3aJbZH4l29rwioJPkxVj1NlU-ParQR8aNQHSzO-rlOy_97JLdmt2HXYRU/
+
+> "I går var det du som gjorde bort dig, i morgon är det kanske jag, och överallt skadeglädjen och ängsligheten, denna ständiga ångest för att skaffa sig ovänner - eller vänner - i fel läger. Det reflexmässiga misstänkliggörandet i ett offentligt samtal där meningsmotståndarens innersta avsikt alltid tycks vara att krossa demokratin, yttrandefriheten och idén om människors lika värde."
+
+https://www.expressen.se/kultur/toppnyheter-/tankepolisen-far-oss-att-bli-tysta-och-fega/?fbclid=IwAR25Y3ENExBMKtHHQKe87oSMnlJKPzF1yQqOkLYMRScdLVGTiBLz4bqc4uo
+
+> "...the Judeo-Christian West and the Muslim East must begin a truly constructive discourse based on mutual respect instead of indulging in nationalist politics and fundamentalist polemic."
+Learn more about Mohammed Arkoun, one of the most influential secular scholars in Islamic studies, here:
+
+https://simerg.com/about/professor-mohammed-arkoun-a-courageous-intellectual-who-advocated-a-tolerant-liberal-and-modern%C2%A0islam/?fbclid=IwAR3gFnTURIVzmp0bRfBpKagvAOjjrfO0vQQ20dkj6RthE9gUaeMIxM2xB-0
+
+> "You’re not a person, and those around you aren’t people!” “You should just listen to your superiors and not think when following an order!” “The less you think, the better your life!”
+> "These are the maxims that are hammered into the heads of eighteen- to twenty-five-year-old detainees, and as a result the percentage that ends up back in jail is astronomical. Those who manage to stay out of prison do so in spite of it, not thanks to it."
+
+https://www.nybooks.com/articles/2015/03/19/khodorkovsky-my-fellow-prisoners/
+
+> "He demonstrated through his scholarship that one could be a faithful Muslim and a modernising mind at the same time."
+
+https://gulfnews.com/general/mohammad-arkoun-scholar-of-reason-1.762553
+
+## 11 mars 2015
+The Origins of Islam - A Conversation with the German Islamic Scholar Josef van Ess
+http://www.goethe.de/ges/phi/prj/ffs/the/a96/en8626506.htm?fbclid=IwAR0gyfXhQ8WA4TgWS6w7XiTB0bceEeA1cvCtVs_ZnWIxBuMDYhLWIrb9Hfg
+
+
+> "On July 15, 1933, Lithuanian-American pilots Steponas (Stephen) Darius and Stasys (Stanley) Girėnas took off from New York, on a transatlantic flight bound for Kaunas, Lithuania. Their Bellanca CH-300 Pacemaker airplane, Lituanica, covered a distance of 3,984 miles (6,411 km) before crashing in what was then German territory, just 404 miles (650 km) short of its destination. The cause of the crash was never determined."
+
+> "Lasting 37 hours 11 minutes, the flight ranked second in terms of distance and fourth in terms of duration for a single, continuous flight. The flight was one of the most navigationally precise of its time and carried the first transatlantic air mail consignment in history."
+
+> "Through their heroic journey, Darius and Girėnas sought to advance civil aviation and bring notoriety to Lithuania, their ancestral homeland, just fifteen years free from a century of Russian occupation. Their empassioned pre-flight declaration or purpose or "Flight Testament" ends with a dedication: "This flight, we will devote and dedicate to you, Young Lithuania!""
+
+> "Lituanica's flight was the 2nd-longest non-stop flight in terms of distance; the 4th-longest, in terms of time spent in the air; and the 1st official transatlantic airmail shipment from USA to Europe"
+
+> "Despite their untimely end, Darius and Girėnas succeeded in capturing the hearts and imagination of Lithuanians worldwide and a place in history among the pioneers of civil aviation. Historians of American aviation consider the flight of Darius and Girėnas to be one of the most noble and unselfish deeds, performed purely out of love for their home country and without any materialistic considerations. The pilots' shining example unified the burgeoning Lithuanian nation, and their empassioned Flight Testament still moves the spirit of younger Lithuanian generations to noble deeds and to work for the well-being of their nation."
+
+Today Lithuania celebrates 25th Anniversary of the Restoration of Independence. Congratulations Lithuania!
+http://www.eurep.mfa.lt/uploads/eurep/documents/Strategine_komunikacija/Kovo_11_update_02_24.pdf?fbclid=IwAR3jWv0hEXMhHOlB1SgOhm3-zbkXz9KTnc9MGVSeeIV-Oi_lBJkZKguIW08
+
+## 10 mars 2015
+
+D.H. Lawrence's "Pomegranate"
+You tell me I am wrong.
+Who are you, who is anybody to tell me I am wrong?
+I am not wrong.
+In Syracuse, rock left bare by the viciousness of Greek women.
+No doubt you have forgotten the pomegranate-trees in flower,
+Oh so red, and such a lot of them.
+Whereas at Venice
+Abhorrent, green, slippery city
+Whose Doges were old, and had ancient eyes.
+In the dense foliage of the inner garden
+Pomegranates like bright green stone,
+And barbed, barbed with a crown.
+Oh, crown of spiked green metal
+Actually growing!
+Now in Tuscany,
+Pomegranates to warm, your hands at;
+And crowns, kingly, generous, tilting crowns
+Over the left eyebrow.
+And, if you dare, the fissure!
+Do you mean to tell me you will see no fissure?
+Do you prefer to look on the plain side?
+For all that, the setting suns are open.
+The end cracks open with the beginning:
+Rosy, tender, glittering within the fissure.
+Do you mean to tell me there should be no fissure?
+No glittering, compact drops of dawn?
+Do you mean it is wrong, the gold-filmed skin, integument, 
+     shown ruptured?
+For my part, I prefer my heart to be broken.
+It is so lovely, dawn-kaleidoscopic within the crack.
+
+https://www.theparisreview.org/blog/2012/07/11/d-h-lawrence%e2%80%99s-%e2%80%9cpomegranate%e2%80%9d/?fbclid=IwAR2SklGnQYzhkvmXejvX55GO1A3wCe0XfFk_h6qhV4ci7znEEeCv9wi16NI#.VP9umE0-478.facebook
+
+
+Pomegranate!
+https://www.youtube.com/watch?v=DK6DW4FStiU
+
+Les Shleu Shleu - Ce'La Ou Ye
+https://www.youtube.com/watch?v=E66hdwCd7u0&sns=fb&fbclid=IwAR2KAKI0Bpp9VI5gbdL6nDUF5BActw-apzWTh0x5lX_dPhCNrzX5Lf3mNwE
+
+Zaïko Langa Langa - Katshi 1&2
+https://www.youtube.com/watch?v=XBd80UjJWLI
+
+Compas is a genre of music from Haiti. Like most genres of Caribbean music, compas has deep roots in African music, and the African influence is clear in the back-beated rhythms that help define the genre. Compas descends from a genre of Haitian music called "meringue," which is related to merengue music, the popular genre from Haiti's fellow Hispaniola island nation, the Dominican Republic.
+https://www.youtube.com/watch?v=GG1eHwbp9ec&sns=fb&fbclid=IwAR17c3a4RE7Z_YFnl6Zu5twaBXHSnBvRAZDp2InU4YGHq9Lmm3yFnu-yAhw
+
+## 9 mars 2015
+
+James Phelps with The Soul Stirrers - Must Jesus Bear The Cross Alone
+https://www.youtube.com/watch?v=ZYbEAxaXGfo
+
+DANS LA VIE" by Shleu Shleu. Tony , Peddy , Edouard , Clovis , Franky , Smith etc...
+https://www.youtube.com/watch?v=94GI-KBeM1I&sns=fb&fbclid=IwAR1bWZlduWFwVs8HCn8WzZmGfgJGi866Wd2DBA1S2eQhy6dicCDQwCZ4Btg
+
+Deception Motema - Bopol Mansiamina
+https://www.youtube.com/watch?v=AKTobKpxLP8&sns=fb&fbclid=IwAR1rQwc9zawuq4llppBimQCpzmtiW4dNi4AxlOuQ5qk9mRqF_Sy6C9_Ka3Y
+
+
+Orquesta Aragon - Yo tengo una muneca
+https://www.youtube.com/watch?v=pBp5M1LHg4g
+
+Zamba Zamba - Soki Vangu and Bella Bella Orchestra
+https://www.youtube.com/watch?v=Yzf5eXkFf-A
+
+orchestre sinza kotoko - dipato
+
+Nyboma Mwan'dido - Ban Gula-Ban Gula
+https://www.youtube.com/watch?v=5TbZ8gYTCRo&sns=fb&fbclid=IwAR3ljIWtpttpAfHQG4HzFJ97FGqKjEeD8WS4_Z_jEFoBAiMXN_3EAYFgAaY
+
+> "Si, si, si l'amour et la danse
+> No, no, no la guerre, la guerre
+> Si, si, si la fête dans le monde
+> No, no, no la bombe, la bombe"
+
+Pamelo Mounk'a et Les Bantous de la Capitale - L'amour et la danse
+https://www.youtube.com/watch?v=8ayjaeTEd50
+
+## 8 mars 2015
+> "The other should not be looked at as only the other, which means different than myself. The other should be perceived as a mirror through which the self can see itself in another light."
+- Nasr Abu Zayd (1943-2010), an Egyptian Qur'anic thinker and one of the leading liberal theologians in Islam.
+
+https://www.youtube.com/watch?v=5lfuHCUN63E&sns=fb&fbclid=IwAR2rdIZab5LoWaPFC-nOo1ucg5c27Yj8a3yGVnok8armZaYMRR073_k1UZY
+
+
+Youssef Rakha - Sultan's seal
+https://sultansseal.com/yrakha/
+
+
+> "My sense is that Arabs are different not from Americans, for example, but from American media stereotypes of normality, which I would think most Americans are equally different from anyway. And for me the importance of literature is that it’s a discourse that transcends such constructions. That is why whether I am writing in Arabic or English it’s important to break expectations, to forestall being read as typical or representative of anything at all, whether as “a spokesman for the Arab Spring” or “a writer of color”—my God!—let alone as supplementary Middle East news material."
+Youssef Rakha - in this conversation:
+https://www.musicandliterature.org/features/2015/3/6/a-conversation-with-youssef-rakha?fbclid=IwAR2bNZ7ZKPghbPyt6O-3UXyux7lW1443iQgyW-EQxj6fXl4rfD4cXUi8HDw
+
+> "Men lyckan är alls inte det som du tror, inga stora bevingade ord..."
+En sång min pappa nynnar på ibland och har gjort så länge jag kan minnas. Antagligen när han känner sig ganska lycklig utan någon särskild anledning. För så är det ju med lyckan; plötsligt infinner den sig bara, och lika hastigt är den borta.
+
+https://www.youtube.com/watch?v=3FcjY3G_Cak&sns=fb&fbclid=IwAR0juTg4dpxGOgGXUjWGjTFBGI3C5Zdj8Vnq4-dtsO7uUOhuCLKMeGkQaY8
+
+
+En lysande essä om lycka av min gamla rumskamrat på Lundsberg, Carl Cederström.
+https://www.dagensarena.se/magasinetarena/javligt-lycklig/?fbclid=IwAR39v1iP2CoeQwc9bpmM2116qR1Z7lXYz6bS20uMDxQFuQ5zCL-Qg-7PDgo
+
+För alla er som likt Åsa Linderborg kräver att Lars Vilks tar ställning och tydligt redovisar en gång för alla vad han egentligen tycker om muslimer och islam skulle jag vilja rekommendera den här 20 minuter långa intervjun med honom i dansk teve. Visserligen ställs frågorna på danska och Lars Vilks fördanskar sin svenska, men för den som kan svenska bör det ändå inte vara några problem att förstå honom. Den som önskar veta ännu mer om Vilks syn på konst och yttrandefrihet kan också gå in på hans blogg: vilks.net. 
+https://www.dr.dk/tv/se/deadline/deadline-2015-03-06?queryhash=!%2F00%3A06%3A59&fbclid=IwAR1mqKdgRldOXp1XZiPKhwio-8xTzNu8KXCJFfY-tA8EoSQiv_Hb6S-O0ko
+
+## 6 mars 2015
+
+John Fahey - The Great San Bernardino Birthday Party
+https://www.youtube.com/watch?v=Icv6U4cfBPE&list=PLW79q83govkV522hRS_vdDi9u8Xu2_bq6&fbclid=IwAR3UOUDUq7ps4dzgH6F66lBRMdKm1LxZSw6HZxCyG4QP3qpgsIL7AROmqok
+
+> "Lacan said that there was surely something ironic about Christ’s injunction to love thy neighbour as thyself – because actually, of course, people hate themselves. Or you could say that, given the way people treat one another, perhaps they had always loved their neighbours in the way they loved themselves: that is, with a good deal of cruelty and disregard."
+
+> "In Freud’s vision we are, above all, ambivalent animals: wherever we hate we love, wherever we love we hate. If someone can satisfy us, they can frustrate us; and if someone can frustrate us we always believe they can satisfy us. And who frustrates us more than ourselves?"
+https://www.lrb.co.uk/the-paper/v37/n05/adam-phillips/against-self-criticism?fbclid=IwAR0wFH8NrviI_b5q8tR1JFC26oPfkDv9lcxSMSqOjZMDnkea7yCKjMsZn4c
+
+## 3 februari 2015
 
 Reading Perumal Murugan
 > "Meanwhile, in my small corner of Delhi, I am trying to read the works of Perumal Murugan in peace."
@@ -1583,8 +1919,312 @@ Reading Perumal Murugan
 https://www.business-standard.com/article/opinion/nilanjana-s-roy-please-leave-him-alone-reading-perumal-murugan-115011901263_1.html?fbclid=IwAR3IYj2zVZl6VvyCZx8nyqhcgK1rTl2kLlCPgkxG41EMwSv7omA5tx1zGZU
 
 
+Old German Song: Irgendwo auf der Welt
+Irgendwo auf der Welt gibt's ein kleines bißchen Glück
+Und ich träum' davon in jedem Augenblick
+Irgendwo auf der Welt gibt's ein bißchen Seligkeit
+Und ich träum' davon schon lange, lange Zeit
+Wenn ich wüsst', wo das ist, ging' ich in die Welt hinein
+Denn ich möcht' einmal recht, so von Herzen glücklich sein
+Irgendwo auf der Welt fängt mein Weg zum Himmel an
+Irgendwo, irgendwie, irgendwann
+Ich hab' so Sehnsucht
+Ich träum' so oft
+Einst wird das Glück mir nah sein!
+Ich hab' so Sehnsucht
+Ich hab' gehofft
+Bald wird die Stunde da sein!
+Tage und Nächte wart' ich darauf
+Ich geb' die Hoffnung niemals auf!
+Irgendwo auf der Welt gibt's ein kleines bißchen Glück
+Und ich träum' davon in jedem Augenblick
+Irgendwo auf der Welt gibt's ein bißchen Seligkeit
+Und ich träum' davon schon lange, lange Zeit
+Wenn ich wüsst', wo das ist, ging' ich in die Welt hinein
+Denn ich möcht' einmal recht, so von Herzen glücklich sein
+Irgendwo auf der Welt fängt mein Weg zum Himmel an
+Irgendwo, irgendwie, irgendwann
+Irgendwo, irgendwie, irgendwann
+From the film "Ein blonder Traum"(1932)
+Performed by The Comedian Harmonists
+Music by Werner Richard Heymann 
+Lyrics by Robert Gilbert
+
+https://www.youtube.com/watch?v=iaoSiklAXiU&fbclid=IwAR2G--P3TBX8h_MOhVSa0efKupdxMoUFVjFbOReNTjakfFEW1Z3iGgLUr4c
+
+## 5 mars 2015
+
+Det är natt och jag befinner mig i 
+Barcelonas fina kvarter och har redan
+druckit mer än tre café con leche
+tillsammans med människor jag inte 
+känner och under en måne som ibland
+förefaller mig så eländig och ibland
+så ensam men kanske är den varken
+det ena eller det andra och kanske har jag
+inte druckit kaffe utan konjak på konjak
+på konjak på en glasrestaurang
+i de fina kvarteren och de människor jag
+trodde jag gjorde sällskap finns kanske inte
+i verkligheten eller så är de ansikten 
+jag lyckats urskilja vid bordet intill mitt
+eget där jag sitter ensam och berusad och
+slösar mina pengar vid en av gränserna
+till det okända universitetet.
+
+ur Det okända universitetet
+av Roberto Bolaño (1953-2003).
+
+## 4 mars 2015
+
+> "Islamist “entryism” — the term originally described tactics adopted by Leon Trotsky to take over a rival Communist organization in France in the early 1930s — continues to be a problem within British universities and schools."
+
+> "The recruiters are adept at manipulating world events to present what I call the “Islamist narrative” — that the world is at war with Islam, and only a caliphate will protect Muslims from the crusaders."
+
+> "The Islamic Society at the University of Westminster, like others at universities across Britain, is still targeted by entryist radicals. While such institutions must guard free speech, they should also be vigilant to ensure that speakers are not given unchallenged platforms to promote their toxic message to a vulnerable audience."
+
+https://www.nytimes.com/2015/03/03/opinion/the-education-of-jihadi-john.html?fbclid=IwAR0lkrr3Eb1UoA0J3NzpYxSlZ6hK-n8k9GkOuhHKTY2XXsb7NgE_HsoyuKk
+
+> "...tvärtemot vad många utgår från är det inte det forna Sovjetimperiet som Putin har som modell för sin expansionistiska politik, utan det gamla kejsardömet under tsar Nicolaj I. Missionen är att återbörda de 25 miljoner ryssar som är bosatta i de gamla territorierna utanför det nuvarande Rysslands gränser; inte minst i Ukraina, som Putin och hans gelikar betraktar som inget annat än en rysk provins."
+https://www.dixikon.se/putin-pa-historisk-missionsamuel-rachlin-jeg-putin/
+
+Tal av Akademiens direktör herr Espmark
+https://www.svenskaakademien.se/svenska-akademien/sammankomster/hogtidssammankomsten/2014/Tal%20av%20Akademiens%20direkt%C3%B6r%20herr%20Espmark
+
+Vi kan inte rädda alla - Torbjörn Elensky
+> "Medan den ena sidan frammanar bilden av en fruktansvärd flodvåg av massinvandring som kommer att utplåna oss och vår kultur helt om den inte stängs ute, målar den andra upp en bild enligt vilken man i princip är en nazist om man överhuvudtaget vill diskutera vad som är möjligt på detta område med tanke på ekonomi, politisk stabilitet och social sammanhållning. Det är inte rimligt att en så viktig fråga tillåts polarisera det offentliga samtalet på ett så extremt destruktivt sätt."
+https://www.axess.se/magasin/default.aspx?article=2402&fbclid=IwAR0toVJ0wupGgeU4ZAolrPI03aA4GKjE4xraCOZT1R2m-mGyEOrhkX9U_BM#.VN71cUZ0ypo
+
+## 3 mars 2015
+
+In this talk Mikhail Khodorkovsky offers his perspective on Russian politics and society, and likely developments in the short to medium term. He discusses the social and economic challenges facing Russia today and possible ways forward.
+https://www.youtube.com/watch?v=ST-Cb039uxg
+
+## 28 februari 2015
+
+> "Oh, man, and just look at London’s privatised skyline. It would be hilarious if it wasn’t so cartoonishly tragic. This one looks like a Nespresso machine. And that one, a cigar, is it? Potato? Full nappy? The utter capitulation of London’s planning system in the face of serious money is detectable right there in that infantile, random collection of improbable sex toys poking gormlessly into the privatised air. Public access? Yeah, we’ll definitely put a public park at the top (by appointment only). Oh, absolutely, we are ALL about community engagement: members of the public are welcome to visit our viewing gallery in the sky, that’ll be 30 quid, madam."
+
+https://www.theguardian.com/politics/2015/feb/24/the-city-that-privatised-itself-to-death-london-is-now-a-set-of-improbable-sex-toys-poking-gormlessly-into-the-air?CMP=share_btn_fb
+
+## 27 februari
+
+> "Throughout the world universalism and rationality are regarded as the bedrock of progressive thinking, in Bangladesh parochial nationalism and emotion are the guiding principles of progressives. Throughout the world progressive historians regard debunking national exceptionalism and national glory as essential for historiography, in Bangladesh progressives regard glorifying national history and suffusing it with strong emotions as the sacred duty of historians."
+
+https://alalodulal.org/2014/12/19/the-long-war/?fbclid=IwAR3EqM-FJG3XgiBrIpyl7c5of0w3Y-8vhswCbIAHuz9RX8MXoh1t2VIKWgQ
+
+## 26 februari 2015
+
+'Berceuse' av André Bjerke (1918-1985):
+Sov, sov lille mann
+Livet er en drøm
+Over mørke morildvann
+Seiler du mot nattens land
+Alle er alene
+Bølger nynner mot din båt:
+Livet er en drøm
+Dyp er sjøen, salt og våt
+som av mange øynes gråt
+Alle er alene
+Natten er så lang, så lang
+Livet er en drøm
+Synk i søvnens myke fang
+Drøm at det blir dag en gang
+Alle er alene
+Bare synke, synke ned
+Livet er en drøm
+Der i søvnens sjø et sted
+Vil vår uro finne fred
+Alle er alene
+Ensomt suser vår planet
+Livet er en drøm
+Intet vet vi, det vi vet
+Er at alt er ensomhet
+Alle er alene
+Lev, lev lille gutt
+Livet er en drøm
+Før du aner er det slutt
+Snart er alle broer brutt
+Alle er alene
+Drøm, drøm lille vår
+Livet er en drøm
+Hvor vi kommer fra, hvor vi går
+Er det ingen som forstår
+Alle er alene
+Gro, gro lille frø
+Livet er en drøm
+Mørket mumler om vår ø:
+Kanskje skal vi aldri dø?
+Alle er alene
+...........................
+Dikten har tonsatts av Finn Kalvik och översatts till svenska av Fred Åkerström, som också är den som framför den här.
+
+https://www.youtube.com/watch?v=MbonlsGeKpo&sns=fb&fbclid=IwAR0wFH8NrviI_b5q8tR1JFC26oPfkDv9lcxSMSqOjZMDnkea7yCKjMsZn4c
+
+## 22 februari 2015
+
+> "Prejudice against Muslims is repulsive. Criticism of Islamist doctrine, and the lampooning of religious beliefs, is not."
+https://www.theatlantic.com/international/archive/2015/01/french-prime-minister-manuel-valls-on-islamophobia/384592/?fbclid=IwAR0NAO-DrlO_EjMEfZqe7dWzQG3aN_99f0mYGxw6eKPgviTYPw77xd89kcg
+
+> "Ropar man islamofob efter alla som vill diskutera religionens anspråk och värderingar spelar man de totalitära i händerna. Tystnadens tomrum växer, tankebanor kriminaliseras."
+
+> "Begreppet islamofobi är halt, formlöst amöbalikt, flexibelt rymligt, kafkaartat destruktivt. Det förblir oprecist – handlar det om tro, ras (vilken då?), människor, politiskt system? – och därför fyllt av propagandistiska möjligheter. Det bortser från det ideologiska innehållet i islamismens utopi, ett tankegods som det finns alla skäl att ta avstånd från."
+https://www.gp.se/debatt/ber%C3%A4ttigad-oro-f%C3%B6r-islamism-%C3%A4r-ingen-fobi-1.51482
+
+
+> "War is the worst possible way to solve problems. Wars lead to deaths and suffering, which are unthinkable in peacetime. Those very people, whom the Russian authorities had claimed to be ‘protecting’, have instead lost their livelihoods, their property, possessions, relatives, and even their lives. Who needs this kind of protection? Not to mention the fact that this armed conflict goes directly against Russia’s interests, for it is a source of deep economic, social and legal problems. I am sure that the Russian people do not want war. The Peaceful Spring march will give everyone an opportunity to demonstrate their desire for peace, with like-minded people, to openly declare their feelings, and to say out loud that the war has to stop, and we need to return to the path of openness and progress."
+
+https://khodorkovsky.com/russians-not-want-war-khodorkovsky/?fbclid=IwAR2G--P3TBX8h_MOhVSa0efKupdxMoUFVjFbOReNTjakfFEW1Z3iGgLUr4c
+
+> "Twee" - "the most powerful youth movement since Punk and Hip-Hop”
+> "...too weary to fight the corporate capitalist machine, the twee instead create hyper-stylized alternative worlds in which kittens play, ukuleles sound and childhood is eternal."
+The twee tribe
+https://www.the-tls.co.uk/articles/the-twee-tribe/
+
+## 19 februari 2015
+
+> "Our hero is Lars, a naïve Swedish schoolboy who was raised in an all-male orphanage. The place was so strict, so straitlaced, that Lars in his nonage had never so much as laid eyes on a woman—not even a photograph of a woman."
+
+https://www.theparisreview.org/blog/2015/02/18/my-mother-taught-me/?fbclid=IwAR0xG689NR2VlIKqEGCdifsk01-TBsycgRW5WPVskIrwxUeCCom7WG_frBo
+
+CoeXisT, by French street artist Combo. (foto)
+
+Laptop Jihadi
+https://www.lrb.co.uk/the-paper/v30/n06/adam-shatz/laptop-jihadi?fbclid=IwAR1O8psk4lWWjygV5h3_PlgOBsU0EAgIbFkguw43aBk8XxyhCEZP5cPmjYk
+
+> "These are the rules of Jante Law, the social norms one should apparently be aware of if one is planning a move to the north:
+> 1. You shall not believe that you are someone.
+> 2. You shall not believe that you are as good as we are.
+> 3. You shall not believe that you are any wiser than we are.
+> 4. You shall never indulge in the conceit of imagining that you are better than we are.
+> 5. You shall not believe that you know more than we do.
+> 6. You shall not believe that you are more important than we are.
+> 7. You shall not believe that you are going to amount to anything.
+> 8. You shall not laugh at us.
+> 9. You shall not believe that anyone cares about you.
+> 10. You shall not believe that you can teach us anything."
+https://www.theparisreview.org/blog/2015/02/11/the-law-of-jante/?fbclid=IwAR1lEyeD_eHTEzx5WmrfEBP4YI0QVh-5bcczReL8kdoMvjG3VkBQ4ZwqwDw
+
+REGN EFTER FYLLA
+Det regnar mjukt och stilla,
+så skönt att inte må illa.
+Friska glänser äpplen fram,
+handen känns frisk mot trädets stam.
+Den som missbrukar sitt liv
+får känsla för enkla substantiv.
+Fötterna prisar vägens grus,
+ögonen havets ljus.
+Det som gjorde ont har gått över,
+jag har allt jag behöver.
+Bengt Anderberg, ur diktsamlingen Fritt efter naturen, utgiven 1981
+
+## 17 februari 2015
+
+> "The reality is that the Islamic State is Islamic. Very Islamic. Yes, it has attracted psychopaths and adventure seekers, drawn largely from the disaffected populations of the Middle East and Europe. But the religion preached by its most ardent followers derives from coherent and even learned interpretations of Islam."
+
+> "Bernard Haykel, the foremost secular authority on the Islamic State’s ideology, believes the group is trying to re-create the earliest days of Islam and is faithfully reproducing its norms of war. “There is an assiduous, obsessive seriousness” about the group’s dedication to the text of the Koran, he says."
+
+https://www.theatlantic.com/magazine/archive/2015/03/what-isis-really-wants/384980/
+
+## 16 februari 2015
+
+London Review of Books, Times Literary Supplement and New Left Review... it seems like the best journals and magazines you can find today are all published in London. I recently discovered NLR through the Swedish blog pressyltaredux.com.
+
+https://newleftreview.org/issues/II91/articles/evgeny-morozov-socialize-the-data-centres
+
+> "Those people who, on March 1st, will once again come out on the streets of Russia’s cities, holding aloft anti-war slogans, will demonstrate that we want a different place in the world for our country and our children. For Putin is not Russia, and there is a future after Putin. Our task is to prepare for that future today."
+– Mikhail Borisovich Khodorkovsky
+(http://www.khodorkovsky.com/mikhail-khodorkovsky-putin.../)
+https://www.youtube.com/watch?v=YPpOZiT2YIA&sns=fb&fbclid=IwAR3EqM-FJG3XgiBrIpyl7c5of0w3Y-8vhswCbIAHuz9RX8MXoh1t2VIKWgQ
+
+
+Students from Russia send a message to the students from Ukraine. English subtitles available.
+https://www.youtube.com/watch?v=VklUdwiiuGE&sns=fb&fbclid=IwAR2ViifivprFwEd0tUWrU5iuaRm3GrCIIF2GS8TCPG_8W1vXWfxVKL1QzEI
+
+Islam and the "culture of offence": missing the point
+> "Islamism is an international far-right movement that has murdered innumerable Charlie Hebdos over several decades across the Middle East, North Africa, Asia, including many “Muslims”, who have dared to speak or mock or just live 21 century lives prohibited by the Islamists. Being a woman, a freethinker, being gay, being unveiled, improperly veiled, an atheist, going to school, driving a car, having sex, falling in love, laughing out loud, dancing...  “offends” them. Calling for civility, censorship, silence or “respect” for the “offended” is merely heeding the Islamist demand for submission at the expense of dissenters. But as Rosa Luxemburg said: “Freedom is always the freedom of dissenters”."
+https://www.opendemocracy.net/en/5050/islam-and-culture-of-offence-missing-point/
+
+
+> "Wahabism has entirely replaced, and become, Sunni Islam; the two cannot be told apart anymore. Some Wahabist teachings, which have permeated the air we breathe in the Muslim world, are simply irreconcilable with decent human values, especially the ones that declare that every non-Wahabist is a disposable body whose bloodletting is unproblematic."
+
+> "For example, very few people know that while Muath was being set on fire in that macabre video, the voiceover was a recitation of an Ibn Taymiyah fatwa deeming the incineration of unbelievers a legitimate act of jihad. Ibn Taymiyah is not some obscure scholar on the fringe of Sunni Islam. In the Sunni world, he is universally venerated with the title “Sheikh of Islam”, elevating him to an almost infallible clerical status.If we really want to defend Islam as a religion of mercy, if we really want to be believed when we proclaim the innocence of this religion, we need to do more than just repeat this meaningless mantra about us having nothing to do with IS. We have to muster the courage to identify the specific texts that actually defame Islam, denounce them and permanently cleanse Islamic tradition of them."
+
+http://www.jordantimes.com/opinion/zaid-nabulsi/we-have-problem%E2%80%99
+
+## 9 februari 2015
+
+> "A new office block in Sweden is offering workers the chance to have a microchip implanted under their skin to allow them to access to various services within the building."
+
+https://www.bbc.com/news/av/technology-31037989
+
+> "These were Mona’s friends and neighbours, some of whom lived in the old city of Delhi nearby. Mona talked to everyone. Speaking to the men she became, or assumed, the male persona of Ahmed-bhai, and many of the men present addressed her as such. Speaking with the women she was Mona, or baji, or behen – all female terms. This quick switch from one identity to the other, and the ease with which she achieved this, was remarkable. Now she was Ahmed and now baji or Mona, and no one seemed to find this odd."
+
+https://granta.com/monas-story/
+
+## 6 februari 2015
+
+Sylvie Arkoun : «Mon père se sentait rejeté par son pays»
+http://kabyleuniversel.com/2014/01/31/sylvie-arkoun-mon-pere-se-sentait-rejete-par-son-pays/?fbclid=IwAR0toVJ0wupGgeU4ZAolrPI03aA4GKjE4xraCOZT1R2m-mGyEOrhkX9U_BM
+
+> "We have to abandon the idea that there is something emancipatory in extreme experiences, that they enable us to open our eyes to the ultimate truth of a situation. This, perhaps, is the most depressive lesson of terror."
+
+https://www.lrb.co.uk/the-paper/v37/n03/slavoj-zizek/in-the-grey-zone?fbclid=IwAR2G--P3TBX8h_MOhVSa0efKupdxMoUFVjFbOReNTjakfFEW1Z3iGgLUr4c
+
+## 5 februari 2015
+
+> "Vänstern offrar enligt tradition verkligheten under något som låter sympatiskt: 'Av var och en efter förmåga, åt var och en efter behov.' Louis Blanc myntade frasen som blev kommunisters och socialisters credo." 
+
+> "Men sanningen är, som John Locke konstaterar i ”Andra avhandlingen om styrelseskicket” (1690), att behoven alltid är större än resurserna, och i Blancs lockande ”trosbekännelse” finns det frö till förtryck som är vänsterns blinda fläck: risken att makten definierar både behov och resurser utan hänsyn till de faktiska."
+
+> "Högerns misstag är att göra kapitalism till ideologi; låt oss privatisera och bolagisera så destillerar konkurrens och marknad fram den mest effektiva skolan och omsorgen."
+
+https://www.svd.se/luttrade-moten-med-arbetslinjens-soner
+
+> "...in the model social democracy of Sweden, social mobility rates again are as slow as in England. Sweden has a class of people descended from its 18th century aristocracy who have distinctive, and legally protected, surnames: Leijonhufvud, Gyllenhaal, Rosencranz and von Essen, for example. Someone with such a surname is still, eight generations later, three or four times more likely to be a doctor or attorney, or to be in the royal academies, than the average Swede. The descendants of 18th century aristocrats are still wealthier than average, and live in the more expensive areas of Stockholm. Sweden is a better society to be lower class in, not because it offers rapid upwards mobility, but because the living conditions of the poor are better."
+
+https://www.theguardian.com/commentisfree/2015/feb/04/social-mobility-equality-class-society?CMP=share_btn_fb
+
+> "A Pakistani journalist and human rights activist now living in America, Zakaria tells the disheartening tale of Pakistan’s history of military rule and Islamist misogynist oppression through the stories of her own family members, especially that of her Aunt Amina, who was forced to accept her husband’s marriage to a second wife in 1986."
+
+https://www.kirkusreviews.com/book-reviews/rafia-zakaria/the-upstairs-wife/?fbclid=IwAR0HWna57NlWkVO4mIEgroNhT6RLuoXnx2CF8PZwvRN8Ld8L9fGXXRH0UuQ
+
+> "'La France est l'esprit de mon âme, l'Algérie est l'âme de mon esprit. Je pense et j'écris en français, mais je pleure en kabyle'. Puissions-nous trouver dans la parole des poètes comme Jean Amrouche, des écrivains, des philosophes et des penseurs comme Mohammed Arkoun, les ferments d'une raison émergente, d'une nouvelle éthique humanisme, d'un avenir commun et enfin apaisé. C'est dans cet espoir que j'ai écrit ce livre sur mon père, Les vies de Mohammed Arkoun, dans l'idée que raconter l'histoire de l'homme était aussi une manière d'introduire à l'œuvre, aussi complexe et exigeante soit elle."
+
+Les vies de Mohammed Arkoun
+https://www.huffingtonpost.fr/sylvie-arkoun/les-vies-de-mohammed-arkoun_b_5908712.html?fbclid=IwAR2U3pd-EDEEv8c-Wv8TT7MTi-boTrTltkjwoPvK62BV6ORcyPrVEjrmTzY
+
+> "Mon père était un intellectuel célèbre dans tout le monde musulman : ce livre est à la fois le récit de son histoire personnelle et un hommage à ses combats. Car cet humaniste passionné, qui prônait une nouvelle vision de l’islam et de la notion de croyance, était un homme complexe et secret, déchiré par sa double appartenance algérienne et française, profondément blessé par le retour en force d’un fondamentalisme islamique ruinant ses espoirs d’une mondialisation religieuse pacifiée."
+Sylvie Arkoun
+https://www.youtube.com/watch?v=RikEuaT-dtg&sns=fb&fbclid=IwAR3ljIWtpttpAfHQG4HzFJ97FGqKjEeD8WS4_Z_jEFoBAiMXN_3EAYFgAaY
+
+> "When DRC went 2-0 down, less than twenty minutes into the second half, the colourful language broke out. Lingala has seven vowels and 29 consonants, and my family put them all to good use criticising the defence."
+
+https://www.lrb.co.uk/blog/2015/february/drc-4-republic-of-congo-2
+
+Jeudis de l'IMA - Mohammed Arkoun
+https://www.youtube.com/watch?v=GIQtwVew9JA&sns=fb&fbclid=IwAR2rdIZab5LoWaPFC-nOo1ucg5c27Yj8a3yGVnok8armZaYMRR073_k1UZY
+
+## 3 februari 2015
+
+I wish I could understand Arabic. If someone who does (and who is interested in what he is talking about) could watch this and summarize what Mohammed Arkoun says, I'd be very happy. There is no such long interview available in French unfortunately and I know a wise man like him needs time to explain things properly.
+https://www.youtube.com/watch?v=jFMyZun7T9s&sns=fb&fbclid=IwAR2LiF1nvPu21x7z9XPozXYJZybtsxLr1M6okzUfbSBnwsk5w--6rWmgZ6E
+
+Mohammed Arkoun essaie ici d'expliquer la naiveté des Européens dans leur approche politique de l'islam et des musulmans.
+https://www.youtube.com/watch?v=pir8IYJIzWo&sns=fb&fbclid=IwAR2LiF1nvPu21x7z9XPozXYJZybtsxLr1M6okzUfbSBnwsk5w--6rWmgZ6E
+
+> "Alom Shaha grew up in a strict Bangladeshi Muslim community in South-East London in the 1970s and 80s. He was expected to go to mosque regularly and recite passages in Arabic from the Quran, without being told what they meant. Alom spent his teenage years juggling two utterly different worlds: a chaotic, sometimes funny, sometimes tragic family life on a council estate, and that of a student at a privileged private school set amongst the idyllic green playing fields of Dulwich."
+
+> "In a charming blend of memoir, philosophy, and science, Alom explores the questions about faith and the afterlife that we all ponder. Through a series of loose ‘lessons’, he tells his own compelling story, drawing on the theories of some of history’s greatest thinkers and interrogating the fallacies that have impeded humanity for centuries. Alom recounts how his education and formative experiences led him to question how to live without being tied to what his parents, priests, or teachers told him to believe, and offers insights so that others may do the same."
+
+https://www.amazon.co.uk/gp/product/184954722X/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=184954722X&linkCode=as2&tag=alomshaha-21&linkId=b155c43e6d186fd0440936d271aa1b74
 
 ## 2 februari 2015
+
+Philosophie en terre d'islam - Dialogue entre Souleymane Bachir Diagne et Abdennour Bidar
+https://www.youtube.com/watch?v=BZRP4QGMTgg&sns=fb&fbclid=IwAR2VF0j-Gjh9BH8l3p3xnNIn4x9zTfpuepikOeMZKzwYlBgUwMbzT7cPc4Q
+
+Bhagawan Ramana Maharshi rare video
+https://www.youtube.com/watch?v=1-OS8LU6JW8&sns=fb&fbclid=IwAR2VF0j-Gjh9BH8l3p3xnNIn4x9zTfpuepikOeMZKzwYlBgUwMbzT7cPc4Q
 
 Jon Stewart with Bassem Youssef in Egypt
 
@@ -1597,6 +2237,21 @@ https://www.youtube.com/watch?v=kEO2Rd3sJbA&sns=fb&fbclid=IwAR3NA8PjPTydelZmKAp8
 > "Egypt's most popular comedian and television personality, political satirist Bassem Youssef, is officially off the air. But unlike the other breaks Youssef has taken in the nearly three years since he started broadcasting his hour-long "Al Bernameg" program, this time the surgeon-turned-funny man won't be coming back."
 (June 2014)
 https://www.washingtonpost.com/gdpr-consent/?next_url=https%3a%2f%2fwww.washingtonpost.com%2fblogs%2fworldviews%2fwp%2f2014%2f06%2f02%2fbassem-youssef-egypts-jon-stewart-is-off-the-air%2f%3ffbclid%3dIwAR2KAtZyQ4VpYaCCm9t6RIkGmmk7U2geqACq0CfD65hSXDLHpA50P7CnxzY&fbclid=IwAR2KAtZyQ4VpYaCCm9t6RIkGmmk7U2geqACq0CfD65hSXDLHpA50P7CnxzY
+
+
+> "Could all this be the fault of the West? How much precious time will you lose, dear Muslim world, with this stupid accusation that you yourself no longer believe, and behind which you hide so that you can continue to lie to yourself?"
+
+> "Particularly since the eighteenth century – it's past time you acknowledged it – you have been unable to meet the challenge of the West. You have childishly and embarrassingly sought refuge in the past..."
+> "Do not delude yourself, my friend, by pretending that by eliminating Islamist terrorism we will settle all of Islam's problems. Because what I have described here – a tyrannical, dogmatic, literalist, formalistic, macho, conservative, and regressive religion – is too often the mainstream Islam, the everyday Islam, which suffers and causes suffering to too many consciences, the irrelevant Islam of the past, the Islam that is distorted by all those who manipulate it politically, the Islam that always ends up strangling the various Arab Springs and the voice of the young people who are demanding something else. So when will you finally bring about this revolution in society and conscience that will make spirituality rhyme with liberty?"
+
+> "So, I beg of you, don't pretend to be amazed that demons such as the so-called 'Islamic State' have taken your face. Monsters and demons steal only those faces that are already distorted by too much grimacing. And if you want to know how to refrain from bringing forth such monsters, I will tell you. It's simple yet difficult: You must begin by reforming the education you give your children, in its entirety, in all your schools and all your places of knowledge and power. You must reform them according to [the following] universal principles – even if you are not the only one violating or disregarding [these principles]: freedom of conscience, democracy, tolerance, civil rights for [those of] all worldviews and beliefs, gender equality, women's emancipation from all male guardianship, and a culture of reflection and criticism of the religion in universities, literature, and the media. You cannot go back, and you can do no less than this. For it is only by doing so that you will no longer give birth to such monsters. If you do not do so, you will soon be devastated by [these monsters'] destructive power."
+https://www.memri.org/reports/open-letter-muslim-world-french-muslim-philosopher-says-islam-has-given-birth-monsters-needs
+
+
+> "The brothers Laurent and Larry Bourgeois, aka Lil Beast and Ca Blaze, make up the impressive French hip-hop sensation known as Les Twins... The duo taught themselves the fundamental techniques of ballet at a young age, which contributes to the fluidity of their hard-hitting, almost animatronic moves. People have been doing the robot since the late sixties, but Les Twins, having once shared the same zygote, take it further. They use each other’s bodies in homoerotic ways—vogueing, the hands of one moving slowly down the hips of the other—to subvert hip-hop’s heteronormative, hyper-masculine rep. Throw in some glitchy music and Laurent and Larry are suddenly more than just twins—they’re clones, cyborgs, automatons even, stuck in some beautifully malfunctioning videotape."
+—Caitlin Youngquist
+(from the Paris Review Blog, January 30, 2015)
+https://www.youtube.com/watch?v=3GNG12g2bKw&sns=fb&fbclid=IwAR3EqM-FJG3XgiBrIpyl7c5of0w3Y-8vhswCbIAHuz9RX8MXoh1t2VIKWgQ
 
 
 ## 1 februari 2015
@@ -1618,6 +2273,182 @@ https://www.youtube.com/watch?v=6flpj__mTRc&sns=fb&fbclid=IwAR1nyCFi-oa7Osv0x_cL
 G(O)OD+(D)EVIL. A film by Chris Turner
 https://vimeo.com/52236734?fbclid=IwAR09QAYs2lnnE8-hb86iM6WyyosDOKjohiZO79G3bDYDVfpa8_6Rmym4GuU
 
+## 31 januari 2015
+
+The Express Tribune in partnership with The International Herald Tribune is the first Pakistani newspaper offering global perspectives and local news with award winning design and critically acclaimed journalists.
+https://tribune.com.pk/
+
+Maryam Namazie - Political activist
+https://maryamnamazie.com/?fbclid=IwAR0qpdQJERAROGslwAn3hTcyzfTpZlRBSTJI9ZbwBv4qw3SFde1YW8eYGqw
+
+Ziuddin Sardar - Biography
+https://ziauddinsardar.com/bibliography?fbclid=IwAR3CzK7RKvEWAhIfWLhOE5eOEofuSgI2IN3xn4LpPxjAovK52y_JJyFLTv4
+
+Alber Saber: Brotherhood will drive the people to secularism
+https://www.dailynewsegypt.com/2013/01/27/alber-saber-brotherhood-will-drive-the-people-to-secularism/?fbclid=IwAR39v1iP2CoeQwc9bpmM2116qR1Z7lXYz6bS20uMDxQFuQ5zCL-Qg-7PDgo
+
+No, I don't believe in God - Alom Shaha
+https://www.theguardian.com/commentisfree/belief/2010/jun/05/god-atheism-islam?CMP=share_btn_fb
+
+Kunwar Khuldune Shahid - Freedom to offend
+https://www.thefridaytimes.com/freedom-to-offend/?fbclid=IwAR15cyzsYuUZtckQAkfVcxRYKN4amuvnKMyjMWXaYGqtEVxMe6jUI1yKmcY
+
+En saudisk kvinna som vågade köra bil
+https://www.ted.com/talks/manal_al_sharif_a_saudi_woman_who_dared_to_drive/up-next?language=sv&fbclid=IwAR0NAO-DrlO_EjMEfZqe7dWzQG3aN_99f0mYGxw6eKPgviTYPw77xd89kcg
+
+In May 2012, shortly before his arrest, Badawi addressed the nature of liberalism on his blog:
+
+> "For me, liberalism simply means, live and let live. This is a splendid slogan. However, the nature of liberalism – particularly the Saudi version – needs to be clarified. It is even more important to sketch the features and parameters of liberalism, to which the other faction, controlling and claiming exclusive monopoly of the truth, is so hostile that they are driven to discredit it without discussion or fully understanding what the word actually means. They have succeeded in planting hostility to liberalism in the minds of the public and turning people against it, lest the carpet be pulled out from under their feet. But their hold over people’s minds and society shall vanish like dust carried off in the wind."
+https://www.theguardian.com/world/2015/jan/14/-sp-saudi-blogger-extracts-raif-badawi?CMP=share_btn_fb
+
+Why should we remember Salmaan Taseer? 
+https://tribune.com.pk/article/20417/why-should-we-remember-salman-taseer?fbclid=IwAR0ZpIr4PKI9MfwQLr63ZZGlOlEVgOKs3CCj2HMXP3TYjeTs9svqIqQSnFg
+
+
+Dr Muhammad Shakeel Auj: Islamic scholar murdered in Pakistan due to his liberal views
+https://www.independent.co.uk/news/people/news/dr-muhammad-shakeel-auj-islamic-scholar-murdered-hardliners-pakistan-his-liberal-views-9754145.html
+
+> "In every country where you hear about armed jihadists targeting civilians, there are also unarmed people defying those militants that you don't hear about. And those people need our support to succeed. In the West it is often assumed that Muslims generally condone terrorism. Some on the right think this because they view Muslim culture as inherently violent. And some on the left imagine this because they view fundamentalist violence solely as a product of legitimate grievances. But both views are dead wrong. In fact many people of Muslim heritage around the world are staunche opponents both of fundamentalism and of terrorism, and often for a very good reason. You see they are much more likely to be victims of this violence than its perpetrators."
+- Karima Bennoune
+https://www.youtube.com/watch?v=cK74vhqzeeQ&sns=fb&fbclid=IwAR0toVJ0wupGgeU4ZAolrPI03aA4GKjE4xraCOZT1R2m-mGyEOrhkX9U_BM
+
+
+Humility - Carl Sagan
+https://www.youtube.com/watch?v=o8GA2w-qrcg&sns=fb&fbclid=IwAR2LiF1nvPu21x7z9XPozXYJZybtsxLr1M6okzUfbSBnwsk5w--6rWmgZ6E
+
+> "On my way out of Le Murail I passed a pair of large, hyper-attentive young men in hoodies outside a shuttered Nan Kebab. It was just gone nine on a Sunday morning. I didn’t have the courage to ask how their day had been so far, or whether they’d ever prayed in the mosque before it was dismantled. I couldn’t imagine people further from God than those two edgy residents scanning the block for anything that moved. Yet the more I think about it, the less certain I get."
+
+https://www.lrb.co.uk/blog/2015/january/in-toulouse
+
+Max Pinckers - Will They Sing Like Raindrops or Leave Me Thirsty
+http://www.chobimela.org/cm8/selectedartists/max-pinckers?fbclid=IwAR2GN7uMH1tYPxZUIZVT9_MACJ-uu8hNX1MNHpkfq1SaRe8C3s32KKSXXYY
+
+## 30 januari 2015
+
+Why CDs May Actually Sound Better Than Vinyl
+https://www.laweekly.com/why-cds-may-actually-sound-better-than-vinyl/
+
+## 28 juni 2015
+
+Grand Kalle & L'African Jazz - Miwela Miwela
+https://www.youtube.com/watch?v=TohBcjfXgco
+
+Meet the honor brigade, an organized campaign to silence debate on Islam
+https://www.washingtonpost.com/gdpr-consent/?next_url=https%3a%2f%2fwww.washingtonpost.com%2fopinions%2fmeet-the-honor-brigade-an-organized-campaign-to-silence-critics-of-islam%2f2015%2f01%2f16%2f0b002e5a-9aaf-11e4-a7ee-526210d665b4_story.html%3ffbclid%3dIwAR0qpdQJERAROGslwAn3hTcyzfTpZlRBSTJI9ZbwBv4qw3SFde1YW8eYGqw&fbclid=IwAR0qpdQJERAROGslwAn3hTcyzfTpZlRBSTJI9ZbwBv4qw3SFde1YW8eYGqw
+
+Reformist muslims
+https://www.youtube.com/playlist?list=PLcqw1jHO-pitZVi48SU87aT2agcxNcsKO&fbclid=IwAR39v1iP2CoeQwc9bpmM2116qR1Z7lXYz6bS20uMDxQFuQ5zCL-Qg-7PDgo&app=desktop
+
+
+## 27 januari 2015
+
+Kulturkvarten – Podcast om skuld och förlåtelse i efterkrigstidens Europa
+https://www.dixikon.se/kulturkvarten-podcast-om-skuld-och-forlatelse-i-efterkrigstidens-europa/?fbclid=IwAR3gvu9o6Zpa0AzYY5laYDmVpDRgV25WrpaU9AneTfN7eyhf361gH07OLf4
+
+## 26 januari 2015
+
+> "His story is the ultimate “I told you so”: a troubled, not obviously talented oddball, who through determination and sheer chutzpah is finally, albeit mostly posthumously, recognized as a genius."
+https://www.nybooks.com/articles/2015/02/05/van-gogh-courage-and-cunning/
+
+> "So why don't we hear more about these great thinkers and questioners today? Because concentrated attempts have been made, and continue to be made, to stifle free thinking and wipe its record from Islam's history. The traditional curriculum, unchanged for centuries, in most madrassas, seminaries and "Islamic universities" is devoted solely to the works of "approved" imams and scholars, and even the minutest critical thought is ruthlessly expunged. (In Saudi Arabia and most Gulf states, for example, it is forbidden to teach the ideas and works of Ibn al-Rawandi, Ibn Rushd, and al-Biruni.) In recent years, Saudi Arabia's rulers have spent £70bn in attempts to suppress critical thought – funding mosques, madrassas, universities and tele-evangelicals – with the result that generations of Muslims around the world, including Britain, now imbibe the Wahhabi ideology."
+
+> "Today, as in history, all attempts to rethink our understanding and relationship with God, to interrogate orthodox belief, to bring reason back to Islam, are shunned – not just by the fanatics but by the vast majority of Muslims."
+
+> "...British Muslims need to create and defend the freedom to question and, if necessary, reject religious authorities of the past and present. And why can't we see this theme explored on television, instead of the usual programmes about terrorism and the hajj? If nothing else, a TV series on free thought in Islam would supply some material to Westerners, so that they could engage with Muslims in a discourse based on mutual respect."
+https://www.independent.co.uk/voices/commentators/islamic-history-full-free-thinkers-recent-attempts-suppress-critical-thought-are-verging-absurd-9993777.html
+
+African Jazz Mokili Mobimba
+https://www.youtube.com/watch?v=3gFgIp4K-SI
+
+Grand Kallé & L'African Jazz - Kelya
+https://www.youtube.com/watch?v=-N83t5HqKBM
+
+Grand Kallé & L'African Jazz - Parafifi
+https://www.youtube.com/watch?v=7CFwpxZtk8c
+
+> "‘The world has lost a revered leader’, claimed US Secretary of John Kerry on the death last week of Saudi King Abdullah, a ‘man of wisdom and vision’, in Kerry’s words. David Cameron praised his ‘commitment to peace’ and ordered flags to be flown at half mast on government buildings. Christine Legarde, the head of the International Monetary Fund, even hailed him as a proto-feminist, a ‘strong advocate of women’."
+
+> "In reality, the man that virtually every Western leader has bent over backwards to praise over the past few days  was a vicious tyrant, the absolute ruler of a kingdom that practiced torture and judicial murder, crushed any opposition, flogged and beheaded dissidents, imposed sharia law in the most brutal fashion, and exported jihadism across the world."
+https://kenanmalik.com/2015/01/25/how-a-bunch-of-vicious-chancers-became-men-of-wisdom/?fbclid=IwAR0C4WNELme8J_BXKpcQwh5qbACu4zMHrDTYgWv-cpm0Gxl99Ny02o4Unt8/
+
+## 25 januari 2015
+
+Vicky Longomba & L'African Jazz: 
+Quand le film est triste
+(Lyrics: Michèle Richard)
+
+Quand le film est triste
+Ça me fait pleurer
+Ce soir j'ai du travail, il m'a dit « Sors sans moi »
+Je m'en suis allée toute seule au cinéma
+Les actualités venaient de commencer
+Au bras de ma meilleure amie, il est arrivé
+Ils sont passés tous les deux sans me voir
+Puis devant moi ils sont venus s'asseoir
+J'ai cru mourir, ils se sont embrassés
+Et juste au beau milieu du dessin animé
+Moi j'ai pleuré
+Quand le film est triste
+Ça me fait pleurer
+Quand le film est triste
+Ça me fait pleurer
+Je suis rentrée bien vite à la maison
+Mes parents voyant mes larmes m'ont posé des questions
+J'ai été obligée de leur mentir
+Pour leur dire
+Quand le film est triste
+Ça me fait pleurer
+Quand le film est triste
+Ça me fait pleurer
+https://www.youtube.com/watch?v=fA3jLJvGvKE&sns=fb&fbclid=IwAR2GN7uMH1tYPxZUIZVT9_MACJ-uu8hNX1MNHpkfq1SaRe8C3s32KKSXXYY
+
+Michèle Richard: Quand le film est triste
+https://www.youtube.com/watch?v=urFxkHOv2HM&sns=fb&fbclid=IwAR0C4WNELme8J_BXKpcQwh5qbACu4zMHrDTYgWv-cpm0Gxl99Ny02o4Unt8
+
+Varför kulturkonservatism?
+
+> "Det finns ett element av kulturkonservatism i folkliga värderingar av konst, även om den inte alltid gör sig hörd. En tekniskt virtuos fotorealistisk målares verk blir av konstvetarna mest av allt beundrade om de visar ett konceptuellt metaperspektiv (sådant skrivs det hyllmeter om). Men den främsta orsaken till att konstnären i fråga attraherar en stor publik är att allmänheten låter sig imponeras av den tekniska skickligheten i kombination med en välartikulerad poetisk medvetenhet. Även om publiken lägger märke till att något är smart och att detta har ett egenvärde, ligger den främsta attraktionskraften fortfarande i denna ”gammaldags” form av uppskattning; inte i den komplicerade teoriutvikningen till konstvetaren. Hantverket, fliten värdesätts; det är som att vördnaden stiger inför de timmar och insikter som krävts för att skapa verket."
+
+> "I sin rädsla för att inte bli betraktade som uppriktiga, och därmed individuella, eftersträvar moderna konstnärer ett hån mot samhällets rådande konventioner och förväntningar… kort sagt, mot allt annat än sig själva (som ju tas på blodigt allvar). Om en konstnär representerar en tradition – det verkar underförstått – kan han eller hon inte tillhöra endast sig själv. Individualismen har därmed skambelagt de mest betydelsefulla konstnärliga egenskaperna: hantverk, kunskap och ödmjukhet."
+
+> "Men vi ska inte glömma att den modernistiska ironin är ett nervöst skratt. De postmodernistiska löftena om nytänkande och förnyelse bygger på en fruktan att bli lämnad efter. Bakom masskulturens glädje över sin egen popularitet döljer sig rädslan för faktiska kvalitetsskillnader. Ironin är ett effektivt verktyg, den är kulturkampens starkaste vapen eftersom den både angriper och försvarar. Den slår hårt samtidigt som den försäkrar att inget motangrepp kommer att tas på allvar."
+https://www.svensktidskrift.se/den-bildade-borgerlighetenvarfor-kulturkonservatism/?fbclid=IwAR2bNZ7ZKPghbPyt6O-3UXyux7lW1443iQgyW-EQxj6fXl4rfD4cXUi8HDw
+
+Everybody talks about capitalism -- but what is it? | Kajsa Ekis Ekman | TEDxAthens
+https://www.youtube.com/watch?v=iq5lX-j6Prg&fbclid=IwAR2rdIZab5LoWaPFC-nOo1ucg5c27Yj8a3yGVnok8armZaYMRR073_k1UZY&app=desktop
+
+## 24 januari 2015
+The Nerdrum School, the Master and His Students
+https://www.huffpost.com/entry/the-nerdrum-school-the-ma_b_4207398?fbclid=IwAR2V8BpSgxxY4GZPRa6dZzzOwcxR7orWjTHPaIynAfA97FnbpmDX8_coCTY
+
+De slog sönder en guldålder
+http://retrogarde.org/?p=2883&fbclid=IwAR2GN7uMH1tYPxZUIZVT9_MACJ-uu8hNX1MNHpkfq1SaRe8C3s32KKSXXYY
+
+Fado is food for the soul. 
+
+Maria da Fé - Maldição
+https://www.youtube.com/watch?v=NGkQNbA_WVk
+
+Carminho - 'Malva-Rosa'
+https://www.youtube.com/watch?v=C_RojJpZwfI&sns=fb&fbclid=IwAR3EqM-FJG3XgiBrIpyl7c5of0w3Y-8vhswCbIAHuz9RX8MXoh1t2VIKWgQ
+
+## 23 januari 2015
+Simply beautiful. What a voice you have Somali Panda
+! Thanks a lot, Peyman, for sharing this twin song.
+https://soundcloud.com/somali-panda/dure-kothay-and-ja-hobar-ta-hobetagore-songfrom-the-album-ami
+
+## 22 januari 2015
+Ekaterina Panikanova. Pars particularis, 2014, books, wood, nails, ink, acrylic. (bild)
+
+> "Pankaj Mishra’s fascinating, highly entertaining new book tells the story of a remarkable group of men from across the continent who met the challenge of the West. Incessantly travelling, questioning and agonising, they both hated the West and recognised that an Asian renaissance needed to be fuelled in part by engagement with the enemy. Through many setbacks and wrong turns, a powerful, contradictory and ultimately unstoppable series of ideas were created that now lie behind everything from the Chinese Communist Party to Al Qaeda, from Indian nationalism to the Muslim Brotherhood."
+http://www.pankajmishra.com/?fbclid=IwAR3tCSIEDn0s-TuAtn4naR-8DQvkeVdcWB2DVq4MwoIBKyFx3xUBpZs4GxY
+
+> "We may have to retrieve the Enlightenment, as much as religion, from its fundamentalists."
+Pankaj Mishra
+https://www.theguardian.com/news/2015/jan/20/-sp-after-paris-its-time-for-new-enlightenment?CMP=share_btn_fb
+
+
+
 ## 21 januari 2015
 
 Mbilia Bal - Sans frontière
@@ -1626,10 +2457,131 @@ https://www.youtube.com/watch?v=GLCteJgI1cw&sns=fb&fbclid=IwAR1DncjCInkUR7XtBRoL
 John Berger - Swimming and Seeing
 https://www.newstatesman.com/2014/12/swimming-and-seeing?fbclid=IwAR1fd99UQ4FSeg5mpxlZXMp5IVtrOgol-HznMb22xm8qHpJvZNpXEcqjjnA
 
+> "[We] have no more control over the people in our heads, than we do over ourselves. What does an optical illusion tell you? It tells you that you have no direct access to reality. How do you begin to control a world you cannot see, a world that includes you? How much of what we do is driven by the vanity of gaining dominion over others, not to own them but with the purpose of shielding our beliefs from evidence that would contradict them? Reality has no way to force itself on us, and we can, in fact, alter what we think we perceive in order to suit what we want to believe. Listening to people is hard because you run the risk of having to change the way you see the world. We sooner destroy them."
+- Zia Haider Rahman, In the Light of What We Know (p. 535)
+
+https://kenanmalik.com/2015/01/21/civilized-france-and-savage-france/?fbclid=IwAR1rSK6HbeAvUlaEKhBvRFwGbo5S44Zntc2fJvn-q5uZmQX5AGiiyPFXO9E/
+
+Zia Haider Rahmans roman är otroligt mångbottnad och fängslande. Läste ut den i dag. Man skulle kunna säga att den i synen på människans val och handlingar är motsatsen till Kay Pollaks Att välja glädje. Pessimistisk? Ja, men med folkmord efter folkmord, vad talar för att människan ur etisk synvinkel blir bättre och klokare? Den potentiella ondskan bor inom oss alla och inga principer i världen gör oss immuna mot den. Kenan Maliks kritik mot såväl mångkulturalism som assimilation är välbehövlig i en tid då rädsla lockar fram polarisering och flockbeteende.
+
+Tabu Ley Rochereau & L'Afrisa International performing at the festival Zaire '74
+https://www.youtube.com/watch?v=8lxZZ9hMXW8&sns=fb&fbclid=IwAR3ljIWtpttpAfHQG4HzFJ97FGqKjEeD8WS4_Z_jEFoBAiMXN_3EAYFgAaY
+
+## 20 januari 2015
+Håkan Lindgren:Mannen som avskaffade medvetandet
+https://www.svd.se/mannen-som-avskaffade-medvetandet
+
+## 19 januari 2015
+
+> "Min bortgångne gode vän Stig Claesson (alias Slas) undrade en gång om mina erfarenheter från Förintelsen kunde ha gjort mig krigsskadad. Nej, Stig, svarade jag, det är du och övriga svenskar som är fredsskadade. Århundradena utan krig, revolution och andra stora omvälvningar har format er tro att människan är i grund och botten god. Det är en farlig illusion. Människan är kapabel till vilka illgärningar som helst, särskilt under stressande omständigheter. Hon kan också vara hjälpsam och god. Denna plasticitet är av central betydelse för hela vårt väsen."
+- Georg Klein
+https://www.dn.se/kultur-noje/kulturdebatt/vi-ska-minnas-forintelsen-som-helt-begriplig/
+
+> "The word “takfīr” (pronounced “tuck – feer”) is one of the most fearsome words in the Islamic lexicon. Deriving from the same root as “kāfir” – infidel – it refers to the act of declaring someone who is nominally a Muslim to be an infidel. And, of course, as the whole world knows by now, a Muslim who has become an infidel is worthy of being killed as an apostate under strict Islamic law. The institution of takfir is not new in Muslim societies, but it has generally been a marginal one. Today, it is at the core of the jihadi extremism that has set the world on fire from Nigeria to India and from Peshawar to Paris."
+
+> "As with most organized religions, the foundational texts and beliefs of Islam can support both peaceful versions and violent ones. Until people recognize and admit that all of these are, in fact, “real Islam”, the issues underlying the problem of jihadi militancy cannot be addressed. If the violence is “not real Islam”, the implication is that Islam – as practiced by most Muslims – needs no reform. But that is manifestly not the case. The scourge of violence in the name of Islam will be removed only when Muslims in general come to reject all instances of violence in the name of Islam, including those that are celebrated in scripture and history. When conquerors who killed “infidels” are regarded as heroes of the faith; when the world is seen as divided into the “house of Islam” and the “house of war”; when dying for God is considered better than living for the sake of fellow humans; when non-Muslims are regarded as morally inferior; when many standard prayers end by asking God for “victory against the infidels”; and when apostasy and blasphemy are regarded as capital crimes – how can jihadi violence be seen as anything but the logical conclusion of such ideas and practices? And yet, these are all part of “mainstream” Islam – some of them derived directly from holy texts. What the extremists are doing is merely taking these ideas more literally and acting on them. The main thing separating most ordinary believing Muslims from the extremists is not so much the narrowness of belief – which they both share – but the willingness to match that belief with action. Small wonder, then, that the militants see non-violent Muslims as hypocrites, which in many ways is worse than being an infidel."
+
+> "This raises a painful question: Can true Muslims only be either militants or hypocrites? Is there no other alternative? And that’s where the solution must begin. The only way to find an alternative – “third way”, so to speak – is to move away from literalism and absolute interpretations. Muslims must ask themselves why Jews don’t still stone adulterers or Christians still conduct witch burnings. They made these changes, not by rewriting holy texts, but by reinterpreting them for a different time and context. If Islam and its texts are indeed “guidance for all times” as Muslims believe, surely their interpretation must change with changing times, or they will become obsolete. What we see unfolding before us is the refusal of a whole faith to recognize the fact of such obsolescence and the need for reinterpretation, which has to be the first step on the path to reformation. And this cannot be done by outsiders preaching humanism at Muslims; it requires Muslims themselves to liberate their faith from the clutches of regressive clerics and begin viewing it more rationally. They can continue to be good Muslims and revere the unchanging words of scripture, but they cannot continue to be literalist reactionaries enforcing orthodoxy by force. That just isn’t compatible with the real world – especially the modern world. People will have to be allowed to make individual decisions with regard to their faith and live! In other words, religion will need to become a private matter, and certainly not something for the State to legislate or vigilantes to enforce."
+
+http://brownpundits.blogspot.com/2015/01/unreal-islam.html?m=1&fbclid=IwAR3ljIWtpttpAfHQG4HzFJ97FGqKjEeD8WS4_Z_jEFoBAiMXN_3EAYFgAaY
+
+Quitting the English Defence League: When Tommy Met Mo.
+https://www.youtube.com/watch?v=uUoeZ-ARdoU
+
+Neutralizing Radical Islamism
+https://www.wsj.com/articles/maajid-nawaz-neutralizing-radical-islamism-1421004689?fbclid=IwAR2OSeychn4XyYIAQQ9EMm2c-GTnx1p18Kmu3PiyjWoLdy44tw-1igIjApM
+
+Colors of Ethiopia
+http://thephotosociety.org/colors-of-ethiopia/
+https://www.travelbooks.co.uk/shop-online-books/in-ethiopia-with-a-mule
+
+
+
 ## 18 januari 2015
 Katia Guerreiro - A voz da poesia
 https://www.youtube.com/watch?v=zpdJMvByoDQ
 
+Touching documentary about a Music School in Afghanistan.
+https://www.aljazeera.com/program/episode/2013/1/17/dr-sarmasts-music-school/?fbclid=IwAR36pcqF4Gryj3LynWd9fr_vQuZpf_L1enmXbJk2A6Y04twCEeW9hHlZLF8
+
+Ali Farzat - a Syrian political cartoonist
+https://en.wikipedia.org/wiki/Ali_Farzat
+
+## 17 januari 2015
+
+Do you want to know more about the difference between Islam and Islamism? Watch this excellent interview with Maajid Nawaz, who used to be an Islamist himself, but nowadays is challenging Islamism through a think tank called Quilliam that he is a Founder and Executive Director of.
+https://www.youtube.com/watch?v=4z1Eps1wJjQ&sns=fb&fbclid=IwAR3tCSIEDn0s-TuAtn4naR-8DQvkeVdcWB2DVq4MwoIBKyFx3xUBpZs4GxY
+
+En välformulerad och tankeväckande analys signerad bloggaren Joakim Andersen som bland annat skriver så här:
+
+> "Vi ser just nu ett försök av etablissemanget att återta kontrollen över diskursen och ställa sig i centrum för en nationell samling riktad inte bara mot mördarna utan mot kritiker mer generellt. Detta är i hög grad oförtjänt, och innebär att alla de viktiga frågor händelsen egentligen väcker kommer sopas under mattan. Det innebär också att ingen förändring kommer ske, att det blir ”mer av samma”, mer av det som inte fungerat tidigare även framöver. Den officiella diskursen är att ett sekulariserat ”vi”, representerat av etablissemanget, står mot en liten grupp, sällan närmare definierade, ”extremister”. Någon koppling till utrikes- eller invandringspolitik finns inte, och folkviljan är ointressant utöver att de flesta tar avstånd från politiskt våld i (västra) Europa."
+
+https://motpol.nu/oskorei/2015/01/15/charlie-hebdo-och-europas-fiender/?fbclid=IwAR0qpdQJERAROGslwAn3hTcyzfTpZlRBSTJI9ZbwBv4qw3SFde1YW8eYGqw
+
+> "Mr. M’bala M’bala may be an anti-Semite, but he should have the right to express his bigotry. To talk of freedom of expression for everyone but bigots is to hollow out the principle. One cannot, in any case, challenge prejudice in practice by banning it; that simply lets the sentiments fester underground. It is only through freedom of expression that we can articulate our disagreements and truly challenge — and, if necessary, mock — the ideas of others, whether they are bigots or not."
+https://www.nytimes.com/2015/01/17/opinion/dont-limit-speech-in-france.html?fbclid=IwAR2GN7uMH1tYPxZUIZVT9_MACJ-uu8hNX1MNHpkfq1SaRe8C3s32KKSXXYY
+
+Nya vantarna
+Text: Torkel Rasmusson
+Tappa inte nya vantarna
+det blåser, det blåser så kallt
+Gör inte av med alla slantarna
+det är så dyrt att leva
+Tappa inte alla tänderna
+när det blåser, det blåser så kallt
+Darra inte så med händerna
+det är så hårt att leva
+Livet rinner mellan fingrarna
+ta vantarna på, det går så fort
+De samvetslösa livsförskingrarna
+står och ruskar i din port
+Och vad du gör, tappa inte nu besinningen när det blåser kallt
+Ta bort pistolen ifrån tinningen
+det är så dyrt att leva
+https://www.youtube.com/watch?v=21jUX2FAJdo&sns=fb&fbclid=IwAR2U3pd-EDEEv8c-Wv8TT7MTi-boTrTltkjwoPvK62BV6ORcyPrVEjrmTzY
+
+
+> "There are more than 200 verses in the Quran, which reveal that the contemporaries of the prophets repeatedly perpetrated the same act, which is now called 'blasphemy or abuse of the Prophet' or 'using abusive language about the Prophet'. Prophets, down the ages, have been mocked and abused by their contemporaries (36:30); some of the epithets cited in the Quran include "a liar" (40:24), "possessed" (15:6), "a fabricator" (16:101), "a foolish man" (7:66). The Quran mentions these words of abuse used by prophets' contemporaries but nowhere does the Quran prescribe the punishment of lashes, or death, or any other physical punishment."
+> "This clearly shows that 'abuse of the Prophet' is not a subject of punishment, but is rather a subject of peaceful admonishment. That is, one who is guilty of abusing the Prophet should not have corporal punishment meted out to him: he should rather be given sound arguments in order to address his mind. In other words, peaceful persuasion should be used to reform the person concerned rather than trying to punish him."
+https://timesofindia.indiatimes.com/home/edit-page/Blasphemy-in-Islam-The-Quran-does-not-prescribe-punishment-for-abusing-the-Prophet/articleshow/16631496.cms?utm_source=fb&utm_campaign=toimobile&utm_medium=referral&fbclid=IwAR2OSeychn4XyYIAQQ9EMm2c-GTnx1p18Kmu3PiyjWoLdy44tw-1igIjApM
+
+Laughing in the face of danger: the state of satire in the Muslim world
+https://www.theguardian.com/culture/2015/jan/12/laughing-in-face-of-danger-satire-in-muslim-world?CMP=share_btn_fb
+
+
+> "We are expected to talk about foreign policy after invasions of distant lands by Western governments, just as we are forced to rethink our human rights complacency after reports on torture emerge. In the same vein, we Muslims must talk about interpretations of the so-called blasphemy laws after Wednesday’s shooting. We cannot run from the issue."
+> "It is upon Muslims throughout Europe to have a full and frank conversation with themselves about blasphemy - what it means to them, whether they are actually offended by depictions of the Prophet (pbuh) and, if they are, what the appropriate response to it is."
+https://www.independent.co.uk/voices/comment/charlie-hebdo-not-all-muslims-agree-what-offensive-and-we-must-make-clearer-9968008.html
+
+## 16 januari 2015
+
+Anita Ekberg (1931-2015) during a night that became eternal.
+https://www.youtube.com/watch?v=The8Xi6fKOE&sns=fb&fbclid=IwAR3-d0-SPhrYMPsOAss-TlIV-cgrEqpamzwUptkNASyuCuH9rWV039Td980
+
+Maureen Bisilliat. "Menino-anjo/ Assis", São José do Rio Pardo - SP, 1965. (foto)
+
+Midwinter, Ann Tout, bound in goatskin with pen, watercolour, gilt, silk and marbled paper. (foto)
+
+Impossible Friendships
+BY ADAM ZAGAJEWSKI
+For example, with someone who no longer is,
+who exists only in yellowed letters.
+Or long walks beside a stream,
+whose depths hold hidden
+porcelain cups—and the talks about philosophy
+with a timid student or the postman.
+A passerby with proud eyes
+whom you'll never know.
+Friendship with this world, ever more perfect
+(if not for the salty smell of blood).
+The old man sipping coffee
+in St.-Lazare, who reminds you of someone.
+Faces flashing by
+in local trains—
+the happy faces of travelers headed perhaps
+for a splendid ball, or a beheading.
+And friendship with yourself
+—since after all you don't know who you are.
 
 ## 15 januari
 
@@ -1695,6 +2647,125 @@ https://kenanmalik.com/2015/01/08/je-suis-charlie-its-a-bit-late/?fbclid=IwAR3B0
 
 https://newhumanist.org.uk/articles/2052/shadow-boxing?fbclid=IwAR2dYAAy3JxZou3CCcUqjhJUnM72LLe8Pdyiwjt5uLRkFF8jviuVMbrN-MQ
 
+## 21 december 2014
+
+> "In Sweden (...) all deviance from group norms and common group patterns is potentially threatening to the individual. The individual should fit in with the coworkers and neighbours. Group pressure makes it especially difficult for immigrants with an academic education obtain employment consonant with their qualifications. "Personal chemistry" is particularly important, since academically trained professionals cooperate with colleagues to a great extent on the basis of individual initiative and intuition and not according to prescribed routines. The psychological condition and capabilities of the professional group  have greater influence on results than do, generally, those of manual workers (this is true for many other countries as well). But since the group pressure for sameness is especially strong among Swedes - associating along the same lines, laughing at the same jokes - immigrants are assumed not to fit in. This stereotyping may explain why so many foreign university students, graduates from technical universities in Sweden, have had such difficulties finding an employer - even when their skills are demanded on the labor market (Daun, p. 107)."
+Daun, Åke. (1996) Swedish Mentality. [translation of (1989) Svensk Mentalitet.] University Park, PA: The Pennsylvania State University Press.
+
+> "I sit in my room, a white man, and listen to East St. Louis Toodle-oo and Lull at Dawn and Things Ain't What They Used to Be and Blood Count. I am certain that I do not hear these pieces the way a black man hears them. But I am also certain that I hear them rightly, that I hear them as music. If you prize Ellington for the reason that he was a black man, you do not have to listen to him. You would prize him just as ardently if you were deaf. "I love it because it is mine." This is the language of identity. Properly translated, this means: I do not love it, I love me."
+(from 'Against Identity', an essay by Leon Wieseltier published in the November 28, 1994 issue of The New Republic)
+https://www.youtube.com/watch?v=5fJu-byjtRY&sns=fb&fbclid=IwAR2Il6s5o0JxOD0jmmNtg_-FiHGWA362KtjIDbyF5BhOKhDqyU4j6HyJTrI
+
+"The hip hop artist T-Dubb-O said that black males throughout the St. Louis area know how old they are from the tone of the police. “When you’re eight or nine, it’s, ‘yo, where are you going?’ and when it’s ‘get down on the ground,’ you know you’ve turned fifteen.”"
+https://www.nybooks.com/articles/2015/01/08/in-ferguson/
+
+An essay by Frank Schirrmacher (in German) published in Frankfurter Allgemeine Zeitung earlier this year. 
+If you find an English translation, please let me now. As far as I know it has only been translated to Norwegian.
+https://www.faz.net/aktuell/feuilleton/debatten/ueberwachung/frank-schirrmacher-12826199.html?fbclid=IwAR0wFH8NrviI_b5q8tR1JFC26oPfkDv9lcxSMSqOjZMDnkea7yCKjMsZn4c
+
+Frank Schirrmacher (1959-2014) inledde med denna essä en debattserie i Frankfurter Allgemeine Zeitungs som pågick under hela 2014 och som handlade om humanismens roll i den digitala revolutionen. Hans text har nu översatts till norska och publicerats av den norska kulturtidskriften Vagant.
+http://www.vagant.no/neelie-kroes-armband/?fbclid=IwAR0toVJ0wupGgeU4ZAolrPI03aA4GKjE4xraCOZT1R2m-mGyEOrhkX9U_BM
+
+
+## 18 december 2014
+Utfryst eller oförmögen att socialisera i dagens samhälle, vem är jag att döma, men ensam är han, den svenske mannen. Underbar satir av Joakim Pirinen, publicerad i Aftonbladet i februari 2013 men minst lika aktuell idag.(foto)
+
+> "They take up room? Of course they do: they are an environment; atoms, not bits. My books are not dead weight, they are live weight—matter infused by spirit, every one of them, even the silliest. They do not block the horizon; they draw it. They free me from the prison of contemporaneity: one should not live only in one’s own time. A wall of books is a wall of windows. And a book is more than a text: even if every book in my library is on Google Books, my library is not on Google Books. A library has a personality, a temperament. (Sometimes a dull one.) Its books show the scars of use and the wear of need."
+https://newrepublic.com/article/100979/library-books-paper-texts-voluminous
+
+”Beslutet innebär slutet för kulturtidskrifterna”
+https://www.svd.se/beslutet-innebar-slutet-for-kulturtidskrifterna
+
+
+## 17 december 2014
+
+This is the wisest text I have read in a long time. Just listen to this:
+"Identity is very social, but it is not very sociable. For the definition of the individual that it provides is not least a negative definition, a definition not only in terms of what one is, but also in terms of what one is not; and such a definition of the same will often be experienced by the other as a rejection. Identity is an insulation; a doctrine of aversion; an exaltation of impassability. The bad news (and for democrats, the good news) is that the insulation is never adequate. The borders are permeable, and strange gods slip across."
+"Identity is not to be mistaken for individuality. Individuality is ancient, identity is modern."
+"It is never long before identity is reduced to loyalty."
+"...memory in the modern world is disappearing beneath the assault of associations. We are carrying too much. We are falling out of our hands. We need a basket. The name of the basket is identity."
+"If you prize Ellington for the reason that he was a black man, you do not have to listen to him. You would prize him just as ardently if you were deaf."
+"I love it because it is mine." This is the language of identity. Properly translated, this means: I do not love it, I love me."
+"Purity is the opposite of integrity."
+"Only one in possession of an identity would understand why one would wish to be rid of it."
+https://newrepublic.com/article/92857/against-identity
+
+## 15 december 2014
+Årets julklapp:
+Jaron Lanier - Who Owns the Future (Penguin, 2014)
+https://www.dixikon.se/vem-ager-framtidentysk-bokhandels-fredspris-till-jaron-lanier/
+
+Time to quit Facebook? Well, I am seriously considering it after listening to Jaron Lanier's talk about sustainability. Is it fair that the ones with the biggest computers get all the money in business after business  while we - the ones who provide their algorithms with all the data - are supposed to work for free? It is clearly not a sustainable system.
+But then again, Facebook is a smooth and simple way to keep in touch with people and it is not that fun to be left out of the conversation.
+So, what should be done about it? Hear what Jaron Lanier has to say in his talk. Here is an excerpt (about Machine translation):
+
+> "Automation should not be an enemy of employment. It never was before. The only difference between now and the past is that now we’re pretending the people who do the real work are actually not doing the real work. We’re putting all of those human translators behind a curtain and we’re pretending they’re not there so we can say, oh, it’s this AI. But it’s not an AI. It’s an algorithm plus millions of people who aren’t getting paid. So if we accept true transparency, open the curtain, acknowledge that people are actually doing the work, but just in a new way, in a better way. If we can acknowledge the improvements that we’re actually creating, we could create a kind of sustainable and democratic very, very high tech future. So that’s the thing I’m advocating for."
+- Jaron Lanier
+https://techonomy.com/conf/te14/future-revolutions/owns-future/?fbclid=IwAR39v1iP2CoeQwc9bpmM2116qR1Z7lXYz6bS20uMDxQFuQ5zCL-Qg-7PDgo
+
+## 7 december 2014
+
+To find out what real neo-fascism is I recommend you to read Alexander Clapp's essay about the Golden Dawn.
+https://www.lrb.co.uk/the-paper/v36/n23/alexander-clapp/diary?fbclid=IwAR3-d0-SPhrYMPsOAss-TlIV-cgrEqpamzwUptkNASyuCuH9rWV039Td980
+
+
+"WeTruck is a startup which enables passengers to travel in a truck." 
+Why didn't anyone think of this before? Great idea.
+
+https://www.youtube.com/watch?v=ljSOukYqXJo&sns=fb&fbclid=IwAR2bNZ7ZKPghbPyt6O-3UXyux7lW1443iQgyW-EQxj6fXl4rfD4cXUi8HDw
+
+> "Om SD:s enda motstånd framöver blir att andra berättar att de är fascister, nazister och rasister, kommer de andra partierna att förlora. SD:s bästa stöd fås just nu från dem som inte orkar/förmår fundera på själva sakfrågorna, utan nöjer sig med att anklaga alla som lyfter frågor om tillkortakommanden kring migration och integration för att fiska i SD:s grumliga vatten. Så upprätthålls ett förödande tankeförbud som verkar direkt kontraproduktivt; i stället för att politiker känner sig tvungna att fundera på vad de kan göra för att ändra på det som är problematiskt – och därmed reellt kunna utmana SD – blir resultatet att frågorna undviks helt."
+https://www.svd.se/ett-sverigefientligt-parti
+
+## 6 december 2014
+The American poet Garth Greenwell reads three of his poems.
+https://vimeo.com/43703033?fbclid=IwAR3HZvGvDPT2F9kaELwAW6GmCdo4rBrFW4-aFLNSc0El9L_Q2ezLSE_-w9g
+
+> "Henrik Tikkanen blev aldrig som Märta en ideologisk fanbärare med ansvar för en betydande politisk rörelse i samtiden. Därtill var han alltför individualistisk och bohemisk, alltför ovillig att inordna sig. Han kunde inte “stå i bredd” med andra, såsom hustrun hade önskat att han skulle göra. Men Johan Wredes bok visar att han som konstnär var överlägsen de flesta andra författare i sin finlandssvenska samtid."
+https://www.dixikon.se/johan-wrede-tikkanens-blick/
+
+## 5 december 2014
+
+> "The writer who chimes most sympathetically with Herzog, tramping down a parallel track that never threatens to deviate, is that other cult figure from a Bavarian mountain village, W. G. Sebald. Both men lived by Herzog’s mantra, “Walking is virtue, tourism is deadly sin” – though with the success of their books and films, the sites they explored have become magnets for a special kind of tourism, secondary filmmakers tramping in their footsteps, bounty-hunting thesis ghouls searching for shrines where the essential mysteries of composition must be revealed. Herzog and Sebald emerged from the same area, at pretty much the same age. They both spent time in Munich. Their fathers were absent or set in unyielding opposition to independent sons. Both men cultivated signature moustaches, frowned, walked, kept meticulous journals, stayed out of Germany."
+
+> "In some peculiar way, the two men, the filmmaker (who writes) and the writer (who wants to make films), have been adopted by the Anglo-American world as exemplars of the “good” German. Serious, hands-on craftsmen"
+> "We respect their walks. We are amused by their seriousness. And seduced by those Bavarian voices; Herzog’s so invigoratingly dour and Sebald’s rich and bass. And now we have two books as weighty as gravestones. The Herzog conversations, A Guide to the Perplexed, weighs a kilo. The posthumous Sebald handbook, Saturn’s Moon (2011), edited by Jo Catling and Richard Hibbitt, weighs a 1.5 kilos. They are worth tracking down, encyclopedic grab bags of higher gossip and information. Pages we can flick to summon those prophetic voices."
+https://34.249.67.146/articles/public/the-obsessions-of-werner-herzog/
+
+## 4 december 2014
+
+Nu betalar vi priset för att ha nedvärderat politikerna
+
+> "I Sverige har villkoren för tre särskilda yrkesgrupper försämrats kraftigt sett över ett par decennier. Status, reellt inflytande, autonomi, trygghet och tid för reflektion har minskat för dessa tre, av olika skäl. Vilka de är? Lärare, journalister och politiker."
+
+Kloka ord av journalisten Andreas Ekström.
+
+https://www.sydsvenskan.se/2014-12-04/nu-betalar-vi-priset-for-att-ha-nedvarderat-politikerna
+
+> "If every head of state and every government official spent an hour a day reading poetry we’d live in a much more humane and decent world … Poetry delivers an inner life that is articulated to the reader. People have inner lives, but they are poorly expressed and rarely known. They have no language by which to bring it out into the open. Two people deeply in love can look at each other and not have much to say except “I love you.” It gets kind of boring after awhile—after the first ten or twenty years … When we read poems from the past we realize that human beings have always been the way we are. We have technological advancements undreamt of a couple thousand years ago, but the way people felt then is pretty much the way people feel now. We can read those poems with pleasure because we recognize ourselves in them. Poetry helps us imagine what it’s like to be human. I wish more politicians and heads of state would begin to imagine what it’s like to be human."
+- Mark Strand
+(in an interview published by Inscape: http://inscape.byu.edu/.../09/17/interview-with-mark-strand/)
+https://www.theparisreview.org/blog/2014/11/29/mark-strand-1934-2014/?fbclid=IwAR39v1iP2CoeQwc9bpmM2116qR1Z7lXYz6bS20uMDxQFuQ5zCL-Qg-7PDgo#.VIAEVSifXUQ.facebook
+
+## 2 december 2014
+I CD-revyn i söndags var författaren Lars Gustafsson (!) inbjuden att delta i panelen för första gången. Visserligen inte lika bevandrad inom den klassiska musiken som de övriga, men istället utrustad med roliga anekdoter och en filosofisk blick som lyfte in nya perspektiv i diskussionen. Veckans totalfemma blev en skiva där några av Vivaldis verk tolkas på blockflöjt av en oerhört energisk schweizare. Bered plats under granen!
+https://sverigesradio.se/sida/artikel.aspx?programid=2471&artikel=6030470&fbclid=IwAR09e5x8dKNoHgbZIZ7q29oX2y25gFsO15zrZJRsMM6Trv8gwVmZFZKczJI
+
+
+Iggy Pop played this song on his radio show on BBC 6 last night, and I have been listening to it over and over again since then. I really like the light voices, the melody and the slow tempo of the song. It is really "doin' it for me" to borrow an expression that Iggy Pop frequently uses in his show.
+https://www.youtube.com/watch?v=bp3pVlWGxqw&sns=fb&fbclid=IwAR3gvu9o6Zpa0AzYY5laYDmVpDRgV25WrpaU9AneTfN7eyhf361gH07OLf4
+
+
+## 28 november 2014
+
+> "They say that when Jean Genet made occasional visits to London after the war his first stop was always the Rembrandt room in the National Gallery, to see Self-Portrait at the Age of 63..."
+https://www.lrb.co.uk/the-paper/v36/n23/t.j.-clark/world-of-faces?fbclid=IwAR0xG689NR2VlIKqEGCdifsk01-TBsycgRW5WPVskIrwxUeCCom7WG_frBo
+
+Europe’s parliament “poised to call for a break-up of Google”
+https://arstechnica.com/tech-policy/2014/11/europes-parliament-poised-to-call-for-a-break-up-of-google/?fbclid=IwAR2OSeychn4XyYIAQQ9EMm2c-GTnx1p18Kmu3PiyjWoLdy44tw-1igIjApM
+
+When they finally make a film about Alan Turing it turns out to be like this. Sad.
+https://www.theguardian.com/film/2014/nov/20/the-imitation-game-invents-new-slander-to-insult-alan-turing-reel-history?CMP=share_btn_fb
 
 ## 14 maj 2014
 
