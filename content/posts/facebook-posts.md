@@ -2767,6 +2767,142 @@ https://arstechnica.com/tech-policy/2014/11/europes-parliament-poised-to-call-fo
 When they finally make a film about Alan Turing it turns out to be like this. Sad.
 https://www.theguardian.com/film/2014/nov/20/the-imitation-game-invents-new-slander-to-insult-alan-turing-reel-history?CMP=share_btn_fb
 
+## 27 november 2014
+
+> "The eighteen stories in New York 1 Tel Aviv 0, Shelly Oria’s debut collection, are beguiling, bizarre, and wise... Her sentences, with their clear-eyed, authoritative calm, underscore and complicate the unlikely circumstances in which her characters find themselves, and the chaos of their inner lives. Here, for example, is the narrator of “This Way I Don’t Have to Be,” on her addiction to sleeping with married men: 'I always look them in the eye throughout, and that can be tricky, because they mostly try to avoid the intimacy of eye contact. I wait, and then suddenly it’s there, passing through them like a wave. In that moment, their entire lives turn to air … For one brief moment, they go back in time, they make different choices, they are different men. And my body is the time-travel machine that takes them there.'"
+https://www.theparisreview.org/blog/2014/11/25/the-in-between-space-an-interview-with-shelly-oria/?fbclid=IwAR0RKvf-IWCsnNgBzR65FURx_lFFqA4QKROl0FFOIfIENsH1_sSr9a8a0Wo
+
+Best Classical Album of 2014? 
+Marcelle Meyer: Jean-Philippe Rameau - The Keyboard Works (Erato, 2014)
+https://sverigesradio.se/artikel/7456028
+
+## 26 november 2014
+
+> "Pojagi ('Po-Jah-ki') Korean traditional wrapping cloths were originally made by nameless women throughout the Choson dynasty. (1392-1910). In olden times, these womens world was their home, but today their world and work has moved beyond the gate of their houses and country into leading design schools and art festivals, as we find with the work of celebrated Korean Pojagi Artist, Chunghie Lee. Not satisfied with traditional folding cloth methods alone, Chunghie Lee embraced the classical art form of Pojagi, and further expanded on it with a line of wearable art clothing, wall hangings, and multi-dimensional textiles, often incorporating old photographic images of simple peasant women peering out at us alone and in groups, as Lee puts it "in order to recognize and pay homage to the contribution they made to this traditional art form over the centuries". "Pojagi and Beyond", as Lee refers to her course at the Rhode Island School of Design and in traveling exhibitions from Hawaii to the Victoria and Albert Museum in London, is one Korean woman's passion for creative fibre arts and her desire to teach others so that they may find in Pojagi the freedom and expression she finds from this ancient Korean art form. Liz Cooper caught up with Chunghie Lee and interviewed her at the 2009 Festival of Quilts in Birmingham, England. Filmed and Edited by Andrew Galli • Translations by Donghoon Ryan Lee"
+https://www.youtube.com/watch?v=Y6tKcWBI6zs&sns=fb&fbclid=IwAR0Sr087j7JH8QXsHcliwtt0ZiBx3w1U15V9eU_Z2n9I58USfOUhOcn9a8s
+
+> "Chico was never primarily a political artist, and rejected the easy dichotomy of being politically engaged and being alienated. His political work was a reflection of the dire necessity of the time, and he saw the protest song as just another of life’s inexorable realities that pepper his work. But it was exactly his sensitivity to the despair, to the loss, to the deeply human cost of the dictatorship that was never flattened by political categories, that made him perhaps its greatest articulator. To borrow a phrase from Art Spiegelman, Chico Buarque’s music bleeds history.
+https://www.musicandliterature.org/features/2014/7/10/chico-buarque-brazils-malandro-and-icon?fbclid=IwAR0hl8pJ-Gkv-r7wiwVFf1nt9DBjniGRVMy1neANj0KcF3D3c7pIzATGPzQ
+
+> "Only the absence of empathy can explain our nation’s unremittingly harsh approach to criminal justice. We are the undisputed world leader in incarceration. We are alone among the developed world in still putting people to death. And nowhere in the world have more children been sentenced to die in prison for crimes they committed as teenagers. For forty years, beginning in the 1970s, incarceration rates steadily increased as we built more prisons, imposed longer sentences, and launched a “war on drugs” that relegated hundreds of thousands to prison for nonviolent offenses often driven by poverty and addiction. Legislatures abolished parole and gave up on rehabilitation. As Stevenson might put it, we have chosen to treat people as if they are as bad as the worst thing they ever did. We hate not only the sin, but the sinner. For a putatively religious country, we seem to have forgotten one of the central lessons of all religions, and certainly the central message of Stevenson’s work—that every human being is capable of redemption."
+The Disgrace of Our Criminal Justice by David Cole
+https://www.nybooks.com/articles/2014/12/04/disgrace-our-criminal-justice/
+
+
+
+> "‘To dine like a soldier, come to dinner with me,’ Napoleon is supposed to have said. ‘If you wish to dine like an emperor, have dinner with Cambacérès.’"
+https://www.lrb.co.uk/blog/2014/november/a-la-cambaceres
+
+> "Toilet graffiti also offers an interesting contrast to the way people typically behave in the bathroom. The unspoken rules of keeping to oneself, not making eye contact, and avoiding talking to strangers, all contribute to a sometimes-tense environment with the goal of shifting focus away from what’s actually happening behind stall doors. But the graffiti on the stall doors does not ignore it one bit. It crudely acknowledges and pokes fun at what we all go to the bathroom to do, and flouts the politeness surrounding it as well. “Sorry,” you say when you reach for a paper towel at the same time as someone else. “Go fuck yourself,” says the bathroom graffiti."
+https://www.theatlantic.com/health/archive/2014/11/behind-the-writing-on-the-stalls/383016/
+
+> "Among the perks of a premium Deathswitch account is the ability to schedule emails for delivery far in the future: to wish your wife a happy 50th wedding anniversary, for example, 30 years after you left her a widow."
+https://www.wired.com/2014/11/talking-to-the-dead/?fbclid=IwAR2rkZd9dp7rASo7fFQPNgTNtgF2Ln1V8T-z6gru8uSA3Px_eD5KGXkdfAg
+
+The Shadow World of Alfred Kubin
+https://www.nybooks.com/daily/2014/11/18/shadow-world-alfred-kubin/
+
+The Invention of the Jewish Nose
+https://www.nybooks.com/daily/2014/11/14/invention-jewish-nose/
+
+Eye Contact: An Interview with Gladys Nilsson
+https://www.theparisreview.org/blog/2014/11/24/eye-contact-an-interview-with-gladys-nilsson/?fbclid=IwAR1fv57leWxj4ajgaM54rV-QkkvhJwy2t25wdn1EsvBJjcydYhqlH-kc3KY
+
+## 25 november 2014
+> "Vigeland, in a distinct blending of Art Nouveau-Symbolist style and grand Italian Renaissance design, has created a Sistine Chapel of eroticism..."
+Randall Hobbet (emanuelvigeland.no)
+https://www.emanuelvigeland.museum.no/museum.htm?fbclid=IwAR0YivOmoJHzvBuwLE7Si2O1qlXNA4LCDtd4YvU3XRIZRBhzXQjOnMtcBoo
+
+## 24 november
+
+> "In the end, crying is all that matters. Tears flowing, that’s the only worthwhile state in which to finish a book, or watch the end credits of a movie, or reach out for the repeat button on the CD player. Through this salty liquid, produced by our own bodies, we dissolve as individual beings and make contact with something greater than ourselves. It is one of our deepest needs, to be lifted above ourselves and thrown, by force, into a limitless, and therefore self-destructive, communion with something that exists as much within us as outside of us, unattainable save for in certain extremely emotional moments."
+https://www.musicandliterature.org/features/2014/10/20/sacred-tears?fbclid=IwAR1A4F_18tcuSjYFQyD58i42u5UN6DT8iRSTSPSV6jFeXqn-XNX1aePd_wk
+
+Babel no more
+http://www.babelnomore.com/?fbclid=IwAR1tcbnv-ZaFV8yVFTyfZNu9jOjbRhAWYS7lFHDfwOsM9ZQTSNzlQhqXwXY
+
+Breaking the language barrier: Tim Doner at TED
+https://www.youtube.com/watch?v=xNmf-G81Irs&sns=fb&fbclid=IwAR35931bvVsKWXodUxJfJfqFx9ZOSudY1P7x9znNjZAGmkmcsd2zJ1sRrEI
+
+Alexander Arguelles presents a discussion and commentary of his technique of "shadowing" foreign languages. For more information, please visit http://www.foreignlanguageexpertise.com
+https://www.youtube.com/watch?v=130bOvRpt24&sns=fb&fbclid=IwAR01r1q857_d3pi535tvTU_oNfn1tvoW5h2PwdzXRNsYuzx-eZSWqPIh5YY
+
+The polyglot Alexander Arguelles demonstrates his technique of shadowing foreign languages.
+https://www.youtube.com/watch?v=VdheWK7u11w&sns=fb&fbclid=IwAR0hl8pJ-Gkv-r7wiwVFf1nt9DBjniGRVMy1neANj0KcF3D3c7pIzATGPzQ
+
+
+Radio Silence - a magazine of literature and rock & roll
+https://www.maintainradiosilence.com/?fbclid=IwAR1B1ijHzk7TcSNDME5B9c9tt6UZy2s-I7pqy3NGcdCkbPJG7mtC8qL4epo
+
+## 22 november 2014
+
+> "In their self-protective understanding of the duties of high office in the national security state—in their refusal to face up to and reform the ungoverned exercise of power that Snowden revealed—Obama and Holder acted in a way that showed them to be profoundly unfree."
+
+> "The strangest revelation of Citizenfour may therefore be this: Snowden, in his hotel room with his journalistic confidants Greenwald and Poitras and MacAskill, affords a picture of a free man. It shows in his posture, and in a sense of humor touched by self-irony. He is not haunted by any fretful concern with what comes next. He is sure he has done something he chose, and sure that someone had to do it."
+https://www.nybooks.com/articles/2014/12/04/question-edward-snowden/
+
+> "After more than twenty years of planning and building, and seventy-five years after the Jews of Poland were murdered or struggled to survive, Warsaw has a new museum: Muzeum Historii Żydów Polskich (the Museum of the History of Polish Jews), which is to be known simply as Polin. “Polin” is the Hebrew and Yiddish word for Poland and the museum’s aim is not so much to document the history of Polish Jews – this would mean reaching into present-day Israel, New York and elsewhere – but to commemorate the thousand years of Jewish history on Polish lands."
+https://34.249.67.146/articles/public/polin-a-wish-to-be-remembered/
+
+## 21 november 2014
+
+> "Everyday Africa, a collection of images shot on mobile phones across the continent, is an attempt to re-direct focus toward a more accurate understanding of what the majority of Africans experience on a day-to-day basis: normal life. Conceived by Peter DiCampo and Austin Merrill, and featuring numerous contributing photographers, the project is a response to the common media portrayal of the African continent as a place consumed by war, poverty, and disease."
+https://everydayafrica.tumblr.com/?fbclid=IwAR1A4F_18tcuSjYFQyD58i42u5UN6DT8iRSTSPSV6jFeXqn-XNX1aePd_wk
+
+
+Amy Winehouse - To know him is to love him (electric studio version)
+https://www.youtube.com/watch?v=nucvoUUyi9U&sns=fb&fbclid=IwAR3D_M27Hv502wuU-NLCGhQ-npjkx8-syq8ttNmw7Op--G7VOClV6wfbR4E
+
+>"'To Know Him Is to Love Him' is a song written by Phil Spector, inspired by words on his father's tombstone, 'To Know Him Was To Love Him.' It was first recorded by the only vocal group of which he was a member, the Teddy Bears."
+(from Wikipedia)
+It is Phil Spector who plays the guitar.
+https://www.youtube.com/watch?v=DCnUsInBQws&sns=fb&fbclid=IwAR1d61oeVRDOuKTMg4f2lVHrESnt0_cN803qptzXoSKUvbEflARREZfFozc
+
+> "Hitomi Hosono is a ceramic artist working in London, merging European and Japanese traditions with her own contemporary approach. Her current work uses the natural beauty of plants to create porcelain objects that combine dramatic form and movement with sensitively refined details. She studies botanical forms in English city and country garden’s, recollecting memories of nature from her childhood in Japan. She is keen to find the essence of what makes leaves and flowers beautiful, transferring the plant forms’ infinite and complex beauty into her ceramic work."
+https://www.hitomihosono.com/?fbclid=IwAR01r1q857_d3pi535tvTU_oNfn1tvoW5h2PwdzXRNsYuzx-eZSWqPIh5YY
+
+Emily Dvorin - Sculptural Fiber Artist
+https://www.youtube.com/watch?v=4trDVCZfIkM&fbclid=IwAR1A4F_18tcuSjYFQyD58i42u5UN6DT8iRSTSPSV6jFeXqn-XNX1aePd_wk&app=desktop
+
+
+
+## 20 november 2014
+
+Sara Nissim (Israel), Children of the World (2008). Velvet, ribbons, buttons, beads, recycled materials. (foto)
+
+## 19 november 2014
+
+A selection of pieces from Identity Parade (by the designer Adam Nathaniel Furman) that were on show between May and June of 2014 at the Hospital Club in Covent Garden, London.
+Photo by Gareth Gardner
+(foto)
+
+What is identity and to what extent do the things we choose to surround ourselves with define it? In his project 'Identity Parade', the London based designer Adam Nathaniel Furman has created what he himself describes as ‘a contemporary museum of creativity for a particular individual, a designer who is in love with technology, mass media and pop culture, but who is determinedly searching for depth and meaning, and is doing so in precisely those cultural areas, through the production of objects’.
+http://www.adamnathanielfurman.com/projects.php?pc_id=31&fbclid=IwAR0FAH7XjTRUF2XPV_7J_dUKdsVD-eK5VhWDq9L2vRCdF1BlPAMn0yrobYA
+
+## 16 november 2014
+
+Arguably the best jazz pianist ever.
+https://www.youtube.com/watch?v=UYS1QMorSxg&sns=fb&fbclid=IwAR3cz_7zXWB1PFYrUw28bRUBjFRSMfN5daEEhtFKCZZ-Lfol0MU7FEtJaLA
+
+Little John and The Monks - Black Winds
+https://www.youtube.com/watch?v=wuiimwef-RI&sns=fb&fbclid=IwAR1fSHTe2fNTH6XYuXEOVnKACOXQjoyE_Hm-k3z_SYqpfwgSOWDZYx1D2Ks
+
+
+> "Hur sent det än är och hur många år det än har gått efter kriget, så är det aldrig för sent att fråga vad som hände, vilka val ens släktingar gjort eller vad de utsatts för. De tyska efterkrigsgenerationerna har länge kämpat med frågan om skuld kan ärvas. Uhly ställer i sin text frågor om och hur det är möjligt att förändra vad den äldre generationen gjort. Men alla dessa frågor vore inte lika intressanta ifall Uhly inte gjort dem allmängiltiga på ett sätt som berör en läsare i våra livssituationer idag."
+https://www.dixikon.se/steven-uhly-konigreich-der-dammerung/
+
+Liksom litteratur har även film förmågan att skapa inre bilder bortom de som träffar våra näthinnor, men i ett visuellt medium är det svårare eftersom bilderna konkurrerar med varandra på ett helt annat sätt. Jag minns första gången jag blev medveten om hur andra bilder än de som visas framför mig på duken kan ta överhanden och slå bort eller delvis utkonkurrera de förra. Det var när India Song av Marguerite Duras visades på biografen Zita under Stockholms filmfestival 2007. Samtidigt som kameran zoomar in  en balsal och en överklass som svettas i sina åtsittande fodral beskriver berättarrösten svältande barn i Calcuttas slum på ett så målande sätt att tankarna ofrivilligt springer dit och de inre bilderna formas.
+Jag kommer att tänka på det när jag ser Pawel Pawlikowskis nya film Ida, som för övrigt har ett exceptionellt vackert foto besläktat med André Kertesz svartvita bilder av Östeuropa på 60-talet (vilket Hynek Pallas även påpekat i sin recension av filmen). När skogspartierna på den polska landsbygden flimrar förbi under den bilresa som filmens två huvudpersoner gör för att söka reda på platsen där den resterande familjen förråtts och avrättats 18 år tidigare, ser jag för mitt inte tydligt hur den tysta, stilla skogen befolkas av skräckslagna judar och ekande skottsalvor.
+Det är en kuslig film som med få karaktärer och precis dialog på ett trovärdigt sätt lyckas fånga stora delar av polsk 1900-talshistoria på bara 80 minuter. Se den om du har möjlighet!
+https://www.youtube.com/watch?v=oXhCaVqB0x0&sns=fb&fbclid=IwAR0cWs5pPay4AGg1sHxyUTfvKkvWpv4kUt0os5LvDvDCwgaTAkD0GYA03y8
+
+Sometimes I wish I had been a (white middle-class) teenager in US in the 50's. What an optimism folks like that must have felt back then! It must have been a time when everything seemed possible. What happened to The Stroll by the way? I miss it even though I have never tried it.
+The Stroll w/ The King of The Stroll: Chuck Willis - Betty and Dupree ("Seventeen")
+https://www.youtube.com/watch?v=PajBJOnRYBI&sns=fb&fbclid=IwAR0IdUQBsIL4nWoL4kjz-eKDKt78OthqZqT8GiDAQ6lZVN3FzVWyYiNeA0s
+
+Stupeflip - C'est Un Tube
+https://www.youtube.com/watch?v=423Xf21Od0c
+
 ## 14 maj 2014
 
 In 1991, I was living in Arese (close to Milan) together with my family. My parents were teachers at the Swedish School there. In that year the Swedish singer Carola won the Eurovision Song Contest, but in Italy of course nobody cared, why should they? We were soon taught that there was another song contest that was more important in this country: Festival di Sanremo. So, we watched the show and later on even bought the CD with all the songs. It turned out to be a big hit in our family; played frequently even after we returned home to Sweden. One of the tracks that I liked the most was a song that I later found out had become sort of the anthem of Sardinia. And to my surprise, each and every Italian I ran into seemed to know it. Often when I meet my sister, one of us sooner or later starts singing it spontaneously, and the other one laughs and sing along. Here it is: "Spunta la luna dal monte".
