@@ -2903,11 +2903,1473 @@ https://www.youtube.com/watch?v=PajBJOnRYBI&sns=fb&fbclid=IwAR0IdUQBsIL4nWoL4kjz
 Stupeflip - C'est Un Tube
 https://www.youtube.com/watch?v=423Xf21Od0c
 
+La Golondrina
+https://www.youtube.com/watch?v=xkEmIKwcgRU
+
+Champion Jack Dupree - I Feel Like A Millionaire
+https://www.youtube.com/watch?v=nw4y_Nqwf0w
+
+## 15 november 2014
+
+Jan Johansson - Emigrantvisa
+https://www.youtube.com/watch?v=ej4P6m7L-4U
+
+Yann Tiersen - La Chute
+https://www.youtube.com/watch?v=22hEbOyWr3U
+
+Fats Waller & Ada Brown - That Ain't Right - Stormy Weather (1943)
+https://www.youtube.com/watch?v=C4ZFsm9msv4
+
+Alice Babs og Duke Ellington
+https://www.youtube.com/watch?v=ITFLD10tzNo
+
+## 14 november 2014
+
+> "För Kraus hade kommersialismen och massmedierna korrumperat språket redan 1912. Språket, skriver han, har blivit en ”färdigtillverkad produkt”, och människornas hela livsinnehåll går ut på att sälja den till varandra."
+
+Kraus var ständigt på sin vakt mot samtiden
+https://www.svd.se/kraus-var-standigt-pa-sin-vakt-mot-samtiden
+
+> "Like Beckett, Duras had a feel for the marginal, the outcast, the damned or condemned, the prisoner of circumstance. It could be the maid and travelling salesman in the luminous Le Square; the persecuted downtrodden victims of colonialization in Un Barrage contre le Pacifique; the under-appreciated concierge in the touching novella “Madame Dodin” (1954); the retired and redundant father in the novel that most obviously owes a debt to Beckett (being all about making time pass while waiting for an arrival) in L’Après-midi de Monsieur Andesmas (1962); the trapped friends and couples in Les Petits Chevaux de Tarquinia (1953) and Dix Heures et demie du soir en été (1960); the murderer of the husband’s deaf cousin in the magnificent L’Amante anglaise (1967). Increasingly, as the work advances, it will be the woman who has abandoned herself to a state that takes her beyond the pale of bourgeois society – the prostitute, the criminal, or the madwoman who has refused to pass through the “sauvagerie d’un choix”."
+
+http://bookhaven.stanford.edu/2014/11/a-writer-of-extremes-dan-gunn-on-marguerite-duras-in-the-tls/
+
+Rumble - Link Wray original 1958 instrumental with street video
+https://www.youtube.com/watch?v=BuAD_sQUgpw
+
+Från Peyman: Today I will share some of the music by Ostad Tehrani, the father of modern tombak. This one is really nice 
+https://www.youtube.com/watch?v=6KWyjJ1vbcc
+
+
+> "There was an old bugger called God
+> Who put a young virgin in pod
+> This amazing behaviour
+> Produced Christ our saviour,
+> Who died on a cross, poor old sod."
+- Dylan Thomas (1915-1953)
+https://www.lrb.co.uk/the-paper/v36/n22/seamus-perry/everything-is-good-news
+
+Linda Vera (La Pollera Colora)
+https://www.youtube.com/watch?v=pNoOse-_-Ho
+
+> "Westwood believed her clothes – which she saw and still sees as her art – were inexorably leading punks towards radical politics. When you put on a punk garment such as a real dog collar, Westwood says, ‘basically you are insulting yourself, but you’re also clearing yourself of all egotism.’ But when she turned round, they were just spitting and jumping. So she moved on."
+https://www.lrb.co.uk/the-paper/v36/n22/bee-wilson/punk-counterpunk?fbclid=IwAR3tnIQ9TmlA8UB9_40gKBNz6AMcfC_7r8ZUdj77Ydl9HXwSpYdGB3rLJVE
+
+## 13 november 2014
+
+Agnes Ravatn är den skribent jag främst lagt märke till i den norska litterära tidskriften Vinduet på senare tid. De essäer jag läst av henne har handlat om skrivandets konst och all de distraktionsmoment som riskerar att sätta käppar i hjulet. Idag upptäckte jag att hon nyligen publicerat en bok som berör ämnet (på det norska förlaget med det med svenska öron roligt klingande namnet Samlaget) och jag ska göra vad jag kan för att övertyga det lokala biblioteket att köpa in den.
+
+## 12 november 2014
+
+Sven-Bertil Taube – en mästare blickar bakåt
+https://www.dn.se/kultur-noje/sven-bertil-taube-en-mastare-blickar-bakat/
+
+The Skinny on Bad Parchment
+https://medievalbooks.nl/2014/10/24/feeling-good-about-bad-skin/
+
+
+## 11 november 2014
+
+> "Man kan säga att Élucidations består av iscensatta möten mellan individens irrationella kraftfält – minnen, känslor, inbillning – och världens ovedersägliga framträdelseformer."
+
+https://www.dixikon.se/alexis-jenni-elucidations/
+
+> "– Det finns inte längre någon objektiv offentlighet som står upp mot den nationalistiska euforin. Allt som finns är en centralstyrd Kremlpropaganda som förstärks av en pinsam, skamlös personkult kring Putin, insvept i rökelsen från den ortodoxa kyrkan. Putins enda och största motståndare är det västliga pluralistiska samhället, individens frihet och ett oberoende rätts­väsende – alltså demokratin i vilken vi lever. Den skulle människorna i Ukraina också vilja leva i."
+
+https://www.dn.se/kultur-noje/herta-muller-vladimir-putin-ar-en-simpel-tjuv-och-nationalist/
+
+Göran Rosenberg's book about his father's journey from Auschwitz to Södertälje (a small town in Sweden) has now been translated from Swedish to English. I read it last month (in Swedish) and was deeply moved by the story. Can warmly recommend you to read it.
+https://www.ft.com/content/35297c3a-6414-11e4-8ade-00144feabdc0
+
+Den tänkande lantbrevbäraren
+Text: Hjalmar Gullberg
+Musik: Gunnar Turesson
+Jag är en lantbrevbärare, 
+jag går i snö och is,
+och intet är mig kärare, 
+än gå på detta vis.
+Om världen än blir vrångare, 
+för yrket jag ej skäms,
+min äldste föregångare, 
+Merkurius benämns.
+Mitt kall hör till de ringare, 
+ej vingar har min häl,
+dock är jag överbringare, 
+av bud från själ till själ.
+Av lyckan borde männskorna få lika,
+det skar mej in i märgen så jag frös.
+När jag bar pengar till de redan rika,
+och kravbrev till en medellös.
+Jag ville gå med väskan över mossen,
+till torpets mö som kärlekspostiljon.
+Men till sin flicka skrev kanhända gossen,
+ett avskedsbrev i hjärtlös ton.
+Den ville jag ge guld och diamanter,
+som skördat stenar där han gått till fots.
+Men ofta bar jag brev med svarta kanter,
+till en som redan sörjde nog.
+En hungrig mätta och en törstig läska,
+så borde väl min uppgift ha sett ut.
+Jag går omkring med ödet i min väska,
+men i förseglat konvolut.
+Och mästare vars bud jag går kanhända,
+varför är mångas liv så rått och kallt.
+Låt mej få gripa in en gång, en enda,
+och till det bästa ordna allt.
+Inspelning:
+Gunnar Turesson / Einar Groths schrammelkvart. / / Odeon D 3140, D 5267 /
+
+https://www.youtube.com/watch?v=XGpK-5GSHJc
+
+INTE ENS - (ur Goggles (1938))
+Inte ens en grå liten fågel
+som sjunger på grönan kvist
+det finns på den andra sidan
+och det tycker jag nog blir trist.
+Inte ens en grå liten fågel
+och aldrig en björk som står vit -
+men den vackraste dagen
+som sommaren ger
+har det hänt att jag längtat dit.
+NILS FERLIN
+https://www.youtube.com/watch?v=ErHOr5Z-l6M
+
+Dorival Caymmi - É doce morrer no mar
+https://www.youtube.com/watch?v=Qdeh5aRuJhw
+
+
+
+## 11 november 2014
+
+> "Today I know that a hundred years ago, Leipziger Strasse was a narrow, popular, and highly populated commercial street filled with tobacco shops, horse-drawn streetcars, sandstone curlicues on the buildings, and women with fancy hats. There were still Jewish-owned textile mills in the neighborhood at the beginning of the thirties. But when I was a child, none of this remained, and I didn’t know there was something, or someone, missing. Today I also know that the tall buildings, like the one I lived in, were constructed with propagandistic intentions as a response to the Springer Publishing headquarters on the West side of the Wall, but as a child, I simply enjoyed all the lights we could see on the other side from the terrace above the twenty-third floor. We read the time for our Socialist recess from an illuminated display in the city’s Western half, visible from our side of the Wall. That the building to which this display was attached also bore the illuminated letters B.Z., advertising a newspaper we’d never heard of, was of no interest to us."
+
+Homesick for Sadness - Jenny Erpenbeck
+https://www.theparisreview.org/blog/2014/11/08/homesick-for-sadness/
+
+## 10 november 2014
+
+Sory Kandia Kouyaté - La voix de la Révolution Vol.1 (Full Album audio)
+https://www.youtube.com/watch?v=8gTmqqOfoUs
+
+## 9 november 2014
+
+Tu eres la reina
+https://www.youtube.com/watch?v=4nkb77tkgGk
+
+Festival En Guarare - Los Corraleros de Majagual
+https://www.youtube.com/watch?v=lqeoaj616l0
+
+Ballad of Sexual Dependency - MARIANNE FAITHFULL 
+https://www.youtube.com/watch?v=0gV7nUA6dHU
+
+Die Ballade von der sexuellen Hörigkeit mit Trude Hesterberg - Kurt Weill Die Dreigroschenoper.wmv
+https://www.youtube.com/watch?v=W8Sx-mr0ANE
+
+> "Boken kan beskrivas som en intellektuellt resonerande socialstudie med tonvikt på hur författarens egen generation, de som idag är mellan 45 och 55 år, uppfattade och uppfattar DDR-tiden och återföreningen. ”Vi är den sista generationen som står i en genuin, rationell och djupt emotionell förbindelse med det delade Tyskland”, lyder ett citat i bokens inledning. För så är det ju med ”murgenerationen”: de är gamla nog för att ha hunnit bli vuxna innan 1989, och unga nog för att ha hunnit erövra livet och anpassa sig till den nya världen efter murens fall. Historiens vinnare med dubbla erfarenheter? I djupintervjuer med vänner, bekanta och andra generationsföreträdare — huvudsakligen akademiker och intellektuella — tecknar hon i den fria essäns form ett porträtt av denna så kallade mellangeneration, men ger också en inträngande bild av sitt eget känslomässigt ambivalenta förhållande till sitt forna hemland."
+
+25-årsminnet av Berlinmurens fall
+Ines Geipel – Generation Mauer
+https://www.dixikon.se/25-arsminnet-av-berlinmurens-fallines-geipel-generation-mauer/
+
+Mississippi John Hurt - You Got To Walk That Lonesome Valley (Live)
+https://www.youtube.com/watch?v=85BvT5X6WSo
+
+## 8 november 2014
+
+Molly Åsbrink - För kärlekens skull
+https://www.youtube.com/watch?v=gKLmiQc2ie8
+
+
+## 7 november 2014
+
+How Long by Frank Stokes (1929, Country Blues guitar)
+https://www.youtube.com/watch?v=sHe4_iboYCU
+
+
+La Burrita - Los Corraleros de Majagual / Discos Fuentes
+https://www.youtube.com/watch?v=2iImZjCHRfc
+
+Frankie Lymon & The Teenagers — I'm Not A Juvenile Delinquent ᴴᴰ (1956)
+https://www.youtube.com/watch?v=PCj1zy-ehPs
+
+Gösta Ekman - Båklandets vackra Maja
+https://www.youtube.com/watch?v=QGzFTYApDQs
+
+En valsmelodi - Lillebror Söderlundh
+https://www.youtube.com/watch?v=-NRtMGiHQX0
+
+> "When I wake up in the morning, I go pray to my God/ When I come back in the evening, I go pray to my God/ Always believe in trying/ Nothing comes for nothing/ Always do my best and leave the rest to God
+> Funny funny identity...
+
+> My papa advise me make I play my music with honesty/ My mama advise me make I respect all my seniors/ Always cut my coat according to my size/ I no dey promise anything when my power no reach/ My yes is my yes/My no is my no/ I no dey make Iyanga... I'm a simple man by nature.
+> Funny funny identity...
+
+> When coconut come for up, e no dey harm anybody/ Coconut get water, nobody knows from where e enter/ If you do good to me, I go thank you for your favour/ If you do bad to me, na you sabi oh
+> Funny funny identity...
+
+> Sometimes when I dress, I dress like boy-yo-yo/ Sometimes when I dress, I dress like chief Obi/ I been get bear-bear... my bear-bear is by nature/ Music is my talent, that’s my identity...
+> Funny funny identity..."
+
+Oliver De Coque and His Expo '76 - Identity
+https://www.youtube.com/watch?v=V_gG1A_7M6U
+
+## 6 november 2014
+
+Med andra ord - Översättarcentrums tidskrift
+https://www.dixikon.se/med-andra-ordoversattarcentrums-tidskrift/
+
+
+The Mysterious World of the Deaf - Gavin Francis	
+https://www.nybooks.com/articles/2014/11/20/mysterious-world-deaf/
+
+Stream CW Stoneking's New Album 'Gon' Boogaloo'
+https://www.undertheradar.co.nz/news/8856/Stream-CW-Stonekings-New-Album-Gon-Boogaloo.utr
+
+C.W Stoneking - Gon' Boogaloo
+https://www.abc.net.au/doublej/featured-music/feature-albums1/cw-stoneking---gon-boogaloo/10272728
+
+## 5 november
+
+ANA MOURA - FADO LOUCURA (ao vivo no CCB)
+https://www.youtube.com/watch?v=lh9YHtZzHfk
+
+> "If we are something, we are our past, aren’t we? Our past is not what can be recorded in a biography or in the newspapers. Our past is our memory. That memory can be hidden or inaccurate—it doesn’t matter. It’s there, isn’t it? It can be a lie but that lie becomes part of our memory, part of us."
+- Jorge Luis Borges
+
+https://www.nybooks.com/daily/2014/11/04/borges-and-god/
+
+Jonathan Richman - That Summer Feeling Live
+https://www.youtube.com/watch?v=TpJvXo6RNu8
+
+Fängslande porträtt av en modeskapare som genom att ständigt ifrågasätta och parodiera det vedertaget vackra och fula har lyckats karva ut en unik och respekterad plats i den internationella modevärlden.
+(Never Back down - modeskaparen Ann-Sofie (dokumentär))
+
+## 4 november 2014
+
+> "Whatever happens at Kobani, Isis is not going to implode. Foreign intervention will only increase the level of violence and the Sunni-Shia civil war will gather force, with no end in sight."
+https://www.lrb.co.uk/the-paper/v36/n21/patrick-cockburn/whose-side-is-turkey-on
+
+> "Lyssna. Upptäcka. Förstå. Återge. Hela långa livet."
+https://www.ingmarbergman.se/blogg/bergmans-hyllning-till-kabi-laretei-1922-2014
+
+## 3 november 2014
+
+> "Someday, when all your material possessions will seem to have shed their utility and just become obstacles to the toilet, poems will still hold their value. They are rooms that take up such little room. A memorized poem, or a line or two, becomes part internal jewelry and part life-saving skill, like knowing how to put a mugger in an arm-lock or the best way to cut open a mango without slicing your hand."
+
+Reading a Poem: 20 Strategies - A guide for the perplexed
+https://www.theatlantic.com/entertainment/archive/2014/11/how-to-read-poetry-a-step-by-step-guide/380657/
+
+> "I associate happiness with energy, with direction, with being interested – whether that’s interest in figuring out what happens next in chapter 12, in reading an article about conflicting research on the economic effects of immigration, or in deciding how much to increase the allspice in a Yotam Ottolenghi recipe."
+
+> "I associate happiness with having a plan. The Plan, mind, doesn’t have to be grand – “Write 1,000 pages in three weeks” or “Save the world”. It can be, “Find out if Lidl is still selling shelled pistachios” or “Please get around to replacing the water filter in the cellar this afternoon, you idiot.” Happiness isn’t a position. It’s a trajectory."
+
+https://www.theguardian.com/lifeandstyle/2014/nov/03/lionel-shriver-i-was-poor-but-i-was-happy
+
+## 3 november
+Oscar Pistorius costume on Halloween
+(bild pistorius.jpg)
+
+> "Vad det svenska språket beträffar anstränger jag mig att ständigt läsa bra svenska författare. När jag översatte Platons största verk Lagarna läste jag varje morgon och kväll Tegnérs brev. Enastående vitalt och spänstigt språk. De elva banden borde vara pliktläsning för varje översättare."
+https://oversattarsektionen.se/manadens-oversattare/jan-stolpe
+
+> "Trots den ambitiösa titeln bör denna skrift inte läsas som ett nytt standardverk om fotografiets konst – i stil med Roland Barthes Det ljusa rummet och Susan Sontags Om fotografi. Det rör sig snarare om en mindre essä på drygt 80 sidor, där Bonnefoy med sin rena men avancerade prosa för fram en rad svårbegripliga, nästan metafysiska idéer om fotografiets och poesins inbördes förhållande. Det är svårt, om inte omöjligt, att sammanfatta själva tesen eller de bärande idéerna på dessa blad, varpå frågor ställs snarare än besvaras."
+https://www.dixikon.se/yves-bonnefoy-poesie-et-photographie/
+
+
+Love and Marriage - Iggy Pop
+
+Iggy Pop continues his 6 Music stint with two hours of tracks on the theme of love and marriage, featuring Bowie, Black Lips, Bobby Rush and Bukka White amongst others.
+https://www.bbc.co.uk/programmes/b04n96r1
+
+## 2 november 2014
+
+> "Digitala personuppgifter är ”det tjugoförsta århundradets råolja”, skriver [Hannes Grassegger] i den nyutkomna pamfletten ”Das Kapital bin ich” (”Kapitalet, det är jag”, utgiven av det schweiziska förlaget Kein & Aber). Kring dessa data har en miljardindustri växt upp: Google, Facebook och de andra välkända storföretagen. Här är det något som inte stämmer, fortsätter Grassegger: varför har inte du, som är källan till dessa värdefulla data, blivit en oljeschejk?"
+https://www.svd.se/personuppgifter-ar-var-tids-raolja
+
+Theo Padnos - My Captivity
+https://www.nytimes.com/2014/10/28/magazine/theo-padnos-american-journalist-on-being-kidnapped-tortured-and-released-in-syria.html
+
+## 30 oktober 2014
+Surjo Dobar Pala - Indrani - Uttam & Suchitra
+https://www.youtube.com/watch?v=PPbH1UyoLkQ
+
+
+## 28 oktober 2014
+Hur svensk kultur reducerades till gnäll - Håkan Lindgren
+https://www.svd.se/hur-svensk-kultur-reducerades-till-gnall
+
+## 27 oktober 2014
+A list of Finnish words that tell you something about Finnish culture
+https://depressingfinland.tumblr.com/post/96375435663/a-list-of-finnish-words-that-tell-you-something
+
+> "[Simone Weils] iakttagelser är enkla och argumentationen axiomatisk. Viktigast är iakttagelsen att partiernas främsta mål är att växa. För att deras reformer ska kunna genomföras måste de nämligen förlänas makt. Hur stora de än blir visar sig makten aldrig vara tillräcklig. Mer makt behövs för att garantera att makten inte går förlorad. Mer makt behövs för att slippa kompromiss med andra partier. På så vis befinner sig partiet i ett ”permanent tillstånd av impotens”.
+
+> "Det är utifrån denna fundamentala bräcklighet som partipiskan kan förstås. För att vinna mer makt måste partiet inte bara måna om intern ”sammanhållning”. Det måste också ägna sig åt propaganda. Propagandans syfte, att övertyga snarare än att sprida ljus, är en central del av partiverksamheten. Här erbjuds ingen valmöjlighet. Det parti som förmedlar mångbottnade resonemang, tvivel eller bara ett dialektiskt vägande av för och emot, försvinner snabbt i konkurrensen. Där propagandan gjorts till dygd kan ingen avvika utan att förlora i makt. ”Högt i tak” gäller i bästa fall på partimöten och sammanträden. Men aldrig utåt. Och i synnerhet inte när det kommer till omröstningssammanhang."
+https://www.svd.se/partierna-hindrar-oss-fran-att-tanka-sjalva
+
+## 26 oktober 2014
+
+> "If we are to preserve privacy, we must insist on its fundamental value, even as we rely on our smartphones in an ever greater part of our social and financial lives. As Citizenfour illustrates, we can no longer avoid the constant sharing of our data and recording of our activity on digital devices —indeed, we are all too often willing participants in such recording. But we can—and must—stand up and object when governments exploit new technologies to engage in secret dragnet surveillance, thereby eroding the right to privacy that is so essential to human dignity and a free society."
+https://www.nybooks.com/daily/2014/10/25/citizenfour-denouncing-surveillance/
+
+The Laborers Who Keep Dick Pics and Beheadings Out of Your Facebook Feed
+https://www.wired.com/2014/10/content-moderation/
+
+> "Ebola is more a symptom of a weak healthcare system than anything else."
+https://www.lrb.co.uk/the-paper/v36/n20/paul-farmer/diary
+
+## 21 oktober 2014
+
+> "Most of the attention has been on the chase itself, less on the Russians’ motives. They are difficult to fathom, which is one reason people were reluctant to believe the whole thing. What do the Russians want from us? (Surely not our wonderful parental leave?)"
+
+https://www.lrb.co.uk/blog/2014/october/ryss-skraeck
+
+
+'Why is the world allowing a holocaust to happen again?' Brave North Korean shares harrowing story of escape
+https://www.independent.ie/irish-news/one-young-world/why-is-the-world-allowing-a-holocaust-to-happen-again-brave-north-korean-shares-harrowing-story-of-escape-30673558.html
+
+> "...Ashtadhyayi, a foundational text from about 500 BC created by a scholar named Panini. Panini’s work not only codified classical Sanskrit as a written language but “created the fields of descriptive and generative linguistics”. In time, “modern linguistic theory, in its turn, became the seedbed for high-level computer languages”. Chandra concludes that in its descriptions of Sanskrit, the Ashtadhyayi “gave this spoken tongue the stability of formal languages – like programming languages – in which a set of rules precisely constrains the symbols, syntax, and usages”. He likens the Ashtadhyayi to an algorithm, “a machine that consumes phonemes and morphemes and produces words and sentences”. "
+TLS Blog - Finding poetry in computers - Jennifer Howard
+
+Stig Fredrikson: Visa ert stöd till rysk media
+https://www.expressen.se/kultur/toppnyheter-/stig-fredrikson-visa-ert-stod-till-rysk-media/
+
+Fredrik Sjöberg är en av Sveriges främsta essäister och jag kan varmt rekommendera denna bok.
+https://sverigesradio.se/artikel/5674610
+
+> "Sjöberg hails from a family of collectors – his father and grandfather both collected stamps – and he caught butterflies and beetles as a boy. "Then I stopped because of the difficulties of making a good impression on girls with dead insects. I usually call this the entomologist's reproductive phase." Aged 25, Sjöberg quit biology, telling his "terrified" parents he wanted to be a writer. He spent five years learning how via environmental journalism and love letters. "The best way to learn to write is to write love letters to girls who don't want you," he says. "I did a lot of that."
+Fredrik Sjöberg: 'I realised I had to write my book for people not interested in flies'
+https://www.theguardian.com/books/2014/jun/14/fredrik-sjoberg-hoverflies-the-fly-trap
+
+En mycket intressant dokumentär om Aaron Swartz
+https://feber.se/film/internets-underbarn/311205/
+
+> "The Internet, as rich as it is in content, is less rich than it could be. If we ever needed an incentive for copyright reform, this is it. New laws and new technologies should, of course, grant greater flexibility for non-commercial sharing, provide stronger fair use guidelines, and shorten the bizarrely long copyright terms. But reforms need also provide concrete assurances to artists, reassurances that the mere act of participating online won’t force them to choose between bankruptcy and chasing infringers through the rabbit hole of ineffective copyright enforcement. More artists online will make for a better Internet, and we all could use an Internet with better stuff."
+https://arstechnica.com/tech-policy/2014/09/one-mans-endless-hopeless-struggle-to-protect-his-copyrighted-images/
+
+## 17 oktober 2014
+
+> "Africa, it’s said, is the mother of modern civilisation, but it’s probably more accurate to say that Congo is. Consider your mobile phone. Before it was assembled in a Chinese factory, the coltan in its capacitors may have been dug by miners in the Eastern Congo, where millions have died in a series of wars over ‘conflict minerals’, though we give this no more thought than previous generations of Westerners gave to the Congolese origins of the ivory in their piano keys, the rubber in their tyres, the copper in their bullet casings or the uranium in their bombs. The mobile phones and computers that connect us to the world also conceal our relationship to it. Some would say that’s just as well. ‘The conquest of the earth,’ Conrad wrote, ‘is not a pretty thing when you look into it too much.’"
+https://www.lrb.co.uk/the-paper/v36/n20/adam-shatz/ca-va-un-peu
+
+## 16 oktober 2014
+
+I'm impressed. Well done Nigeria!
+Here's What We Should Learn From Nigeria's Incredible Effort To Shut Down Ebola
+https://www.businessinsider.in/Heres-What-We-Should-Learn-From-Nigerias-Incredible-Effort-To-Shut-Down-Ebola/articleshow/44825892.cms
+
+> "La jeunesse de Kinshasa la belle, allez-y!"
+https://www.youtube.com/watch?v=H4XXJ27brOc
+
+Franck Lassan, le dernier dandy de Léopoldville
+https://www.youtube.com/watch?v=qFyiUZgHlxQ
+
+## 15 oktober 2014
+
+Elizeth Cardoso, Jair Rodrigues & Os Originais do Samba
+https://www.youtube.com/watch?v=StcaiG6_J54
+
+Original Les Mangelepa - Walter Live Performance
+https://www.youtube.com/watch?v=axMLSyBWUIg
+
+EVOLOKO JOCKER ( la belle de Bangui )
+https://www.youtube.com/watch?v=97KSXaRyyVQ
+
+> "One person’s offence is all too often another person’s art. Once we allow offence to become the criterion or acceptability, then much art, and almost all satire, will go the way of Banksy’s pigeons."
+
+https://kenanmalik.com/2014/10/03/one-persons-offence-is-another-ones-art/
+
+## 13 oktober 2014
+Afrikas bäst bevarade hemlighet
+https://www.svd.se/afrikas-bast-bevarade-hemlighet
+
+## 12 oktober 2014
+
+Jenny Diski writes about her relation to Doris Lessing.
+https://www.lrb.co.uk/the-paper/v36/n19/jenny-diski/what-to-call-her
+
+## 3 oktober 2014
+
+Apropå domen mot Dan Park, del 1:
+
+> "...når en kunstner udtrykker noget, så er det ikke nødvendigvis udtryk for vedkommendes egne holdninger. At kunst kan være kunst, selv om det udtrykker holdninger, der er frastødende. Og at det ligger i kunsten som kunst, at den typisk er flertydig. Eller for at tage et litterært eksempel: Den fransk-amerikanske forfatter Jonathan Littell udgav i 2006 den fremragende roman »De velvillige«, hvor han over mange sider sætter sig ind i hovedet på en SS-bøddel. Det gør ham ikke til nazist. På samme måde som Dan Parks sætten sig ind i hovedet på racister ikke gør manden til racist. Højst til en provokerende kunstner."
+
+https://www.berlingske.dk/ledere/en-lige-hoejre-til-ytringsfriheden
+
+Apropå domen mot Dan Park, del 2:
+> "Det är svårt att komma ifrån att Parks advokat inte har gjort bra arbete. Den bästa möjligheten att få någon ordning på detta drama torde vara att följa den traditionella strategin vid konsträttegångar. Den första argumentationen är att tala om konstens natur som överskridande och provocerande. Dess historia betingas av detta. Publiken får därför vara beredd att sådant kan förekomma. I detta sammanhang borde man också markera att det besynnerliga kravet på att konstverk skall leda till ”en sakliga och vederhäftig debatt” på alla sätt strider mot konstens praxis"
+...
+
+> "Det är uppenbart att försvaret inte gör mycket åt att försöka tolka bilderna. Istället använder man sig av taktiken ”at first glance”, alltså att det är självklart vad de betyder. Man ser färgade människor samt texter som innehåller orden ”neger” och ”nigger”. Därav drar man den snabba slutsatsen att det inte kan vara annat än fråga om en ren provokation och hets mot folkgrupp. Emellertid kan försvaret påpeka att konstbilder inte alls behöver betyda vad man först tycker sig se. Vidare är det givet att varje betraktare kan skapa sin tolkning. Några tolkningar får dock sägas vara rimligare än andra. I det här fallet får man jämföra vad åklagaren ser med försvarets synpunkter: Vilka är konstnärens intentioner och är tolkningar baserade på dessa rimliga?"
+https://www.vilks.net/2014/09/08/1896-dan-park-och-tingsrattens-alltfor-enkla-domslut/
+
+
+> "Their greatest strategic threat comes not from a drone but from a girl with a book. We need to recognize, and act on, that truth as well. For similar reasons, the financiers of extremism have invested heavily in fundamentalist indoctrination. They have built Wahhabi madrassas in poor Muslim countries like Pakistan, Niger and Mali, offering free meals, as well as scholarships for the best students to study in the gulf. Shouldn’t we try to compete?"
+https://www.nytimes.com/2014/10/02/opinion/nicholas-kristof-what-isis-could-teach-the-west.html
+
+## 2 oktober 2014
+> "”Antirasisterna” har inte övertygat oss om sina teorier, men de lyckades stigmatisera begreppet ”kultur”.
+...
+
+> "Om man avhänder sig rätten att diskutera en kulturs kvalitet (mätt med männi­skans chanser att leva ett värdigt liv) blir det omöjligt att förstå historien. När en miljon svenskar flydde landet var det inte bara fattigdomen, det var också en enhetskultur som blivit för kvävande.En kultur kan stelna, den kan bli partiellt funktionshindrad och i behov av sjukgymnastik. Den kan vara mer eller mindre sluten, döma sig själv till ignorans eller självlögn, odla högfärd och beröringsångest, fastna i tomma gester, eller offermyter. Den kan manipuleras att upprätthålla en rutten ordning. (”Skulle slöjan bli föremål för ett äkta demokratiskt avgörande i arabvärlden skulle den falla utan vidare”, skrev poeten Adonis häromåret.) Alltså måste man kunna diskutera andras kultur kritiskt, med distans och en smula humor. Det är inte alls farligt eller rasistiskt. På ett villkor: att vi utsätter vår egen kultur för samma behandling."
+
+Zarembas artikel är fortfarande högaktuell, trots att den skrevs för fem år sedan. Kan varmt rekommendera er att läsa den:
+https://www.dn.se/kultur-noje/kulturdebatt/upptack-sverige/
+
+## 30 september 2014
+
+> "Programs like this had existed for decades, but MonsterMind software would add a unique new capability: Instead of simply detecting and killing the malware at the point of entry, MonsterMind would automatically fire back, with no human involvement. That’s a problem, Snowden says, because the initial attacks are often routed through computers in innocent third countries. “These attacks can be spoofed,” he says. “You could have someone sitting in China, for example, making it appear that one of these attacks is originating in Russia. And then we end up shooting back at a Russian hospital. What happens next?”
+
+> "In addition to the possibility of accidentally starting a war, Snowden views MonsterMind as the ultimate threat to privacy because, in order for the system to work, the NSA first would have to secretly get access to virtually all private communications coming in from overseas to people in the US. “The argument is that the only way we can identify these malicious traffic flows and respond to them is if we’re analyzing all traffic flows,” he says. “And if we’re analyzing all traffic flows, that means we have to be intercepting all traffic flows. That means violating the Fourth Amendment, seizing private communications without a warrant, without probable cause or even a suspicion of wrongdoing. For everyone, all the time.”
+
+
+> "In the end, Snowden thinks we should put our faith in technology—not politicians. “We have the means and we have the technology to end mass surveillance without any legislative action at all, without any policy changes.” The answer, he says, is robust encryption. “By basically adopting changes like making encryption a universal standard—where all communications are encrypted by default—we can end mass surveillance not just in the United States but around the world.”"
+https://www.wired.com/2014/08/edward-snowden/
+
+
+The country of milk and Heavy Metal.
+https://www.kullin.net/2014/01/25-maps-that-show-how-sweden-is-unique/
+
+## 28 september 2014
+
+Ahmad Jamal dans Radio Vinyle #6 sur France Musique
+> "Cette légende du jazz est venue nous rendre visite en début d'année par un froid glacial. Nous nous réchauffons tous en parlant de jazz, bien-sûr, et de Pittsburgh, incontournable ville de son enfance. Il y a bien longtemps qu'Ahmad Jamal n'a pas vu tourner une platine ; au détour de quelques morceaux de Art Tatum ou Maxine Sullivan choisis dans la collection, il nous avouera découvrir ici des disques qu'il n'avait jamais écoutés…"
+https://www.youtube.com/watch?v=JwY0Mxsjg1w
+
+Radio Vinyle #16 avec Salif Keïta au micro de l'Afrique Enchantée
+> "En pleine actualité autour du Mali, Radio Vinyle reçoit un des principaux ambassadeurs du pays à travers le Monde : Salif Keïta. Au centre de la Discothèque de Radio France, l'artiste se raconte disque après disque au micro de Soro Solo et Vladimir Cagnolari pour l'émission "L'Afrique Enchantée" diffusée ce dimanche 10 Février à 17h sur France Inter. Un épisode de Radio Vinyle qui voyage entre les continents et les sonorités du Monde."
+https://www.youtube.com/watch?v=PgxpWMJHtd8
+
+Bertrand Tavernier dans Radio Vinyle #19 sur France Musique
+> "Le cinéaste Bertrand Tavernier, à l'honneur pour une journée exceptionnelle sur France Musique, est l'invité de ce Radio Vinyle #19 qui fait la part belle aux cinéma, aux musique de films et aux compositeurs. Thierry Jousse recueille sa sélection de disques vinyles, et ses confidences, pour l'émission Cinema Song."
+https://www.youtube.com/watch?v=XHZhKzotxGA
+
+Rokia Traoré dans Radio Vinyle #21 sur France Inter
+> "Quelques jours après la sortie de son 5ème album, "Beautiful Africa" (Nonesuch/Warner), Rokia Traoré est l’invitée de ce 20ème Radio Vinyle. Guidée par Soro Solo et Vladimir Cagnolari de l'émission L'Afrique Enchantée sur France Inter, et au milieu des 450 000 vinyles de la discothèque de Radio France, la chanteuse revient aux sources de la musique malienne en présentant Ali Farka Touré et Nahawa Doumbia et évoque sa propagation en Amérique avec Louis Armstrong, Ella Fitzgerald et Janis Joplin. "
+https://www.youtube.com/watch?v=1JW5AZIRthw
+
+
+> "Stuart Maconie hosts a special programme in conversation with the singer and poet Leonard Cohen covering such subjects as songwriting, the possibility of touring again aged 80, his latest album Popular Problems and how being Canadian informs his outlook and music."
+https://www.bbc.co.uk/programmes/b04kfry3
+
+## 27 september 2014
+
+> "It's been over 15 years since the first dedicated e-readers were released, and over seven since the first Kindle. Today, about 15% of consumer spending on books is electronic and about 30% of books sold are e-books. The majority of book readers still only read in print, and only 6% of readers read e-books exclusively. It's clear that e-books are here to stay, but it's less clear that the complete dismantling of the publishing industry is around the corner."
+https://www.buzzfeed.com/lincolnmichel/the-future-is-never
+
+> "In his poems and songs there is always, as Wordsworth put it, “The glory and the freshness of a dream.” Reading and listening to Leonard Cohen it is always, and forever, the first time."
+https://www.theparisreview.org/blog/2014/09/19/the-favorite-game/
+
+Excellent Lovers Rock mix for a lazy Saturday morning!
+https://www.mixcloud.com/DJAndySmith/dj-andy-smith-lovers-rock-selection-pt-1/
+https://www.mixcloud.com/DJAndySmith/dj-andy-smith-lovers-rock-mix-pt-2/
+
+## 25 september 2014
+
+Från Edward Nordén: den där boklistan.. blev ju rätt märklig om man nu verkligen ska ta böcker som har givit ett starkt intryck under en viss period.. Vad säger Mr. Bredelius
+, funkar på någon barrikad? 🙂
+Frans G Bengtsson - Röde Orm
+Henry Rollins - Get in the van
+G I Gurdjieff "All and everything"
+Robert Fisk "The Great War for Civilisation: The Conquest of the Middle East"
+Loretta Napoleoni "Unholy wars"
+Douglas Coupland "Generation X"
+Sam, Chuck & Bettina Giancana "Double Cross"
+Friedrich Nietzsche "Antikrist"
+Väinö Linna "Okänd Soldat"
+Nicholas Goodrick-Clarke "The occult roots of nazism"
+Alt
+Göethes "Den unge Werthers lidande" och Rudolf Höss "Kommendant i Auschwitz".
+
+## 24 september 2014
+
+"Sweet like the ripest mango of my motherland", says one of the comments.
+https://www.youtube.com/watch?v=x1Oy4OSuKs4
+
+Seems like the best thing would be a compromise between Sweden's and Norway's attitudes towards people fleeing from Syria. Maybe it is time for our countries to reunite? This time we can share your king, because honestly our one would be better off as a test driver or a comedian.
+
+https://www.nytimes.com/2014/09/21/opinion/sunday/syrian-refugees-nordic-dilemma.html
+
+## 23 september 2014
+The best song and the best dance performance in Italian cinema: El Negro Zumbon by Silvana Mangano in the film Anna (1951) by Alberto Lattuada.
+
+El Negro Zumbon (Anna) - Silvana Mangano - NO CUT NO ERROR
+https://www.youtube.com/watch?v=qZqB2CczTes
+
+> "Maria Tănase (25 September 1913 – 22 June 1963) was a celebrated Romanian singer and actress. Her music ranged from traditional Romanian music to romance, tango, chanson and operetta. Maria Tănase has a similar importance in Romania to that of Édith Piaf in France or Amália Rodrigues in Portugal. In her nearly three-decade-long, she became widely regarded as Romania's national diva, being admired for her originality, voice, physical beauty and charisma. In Romania, she is still regarded as a major cultural icon of the 20th century."
+(from Wikipedia)
+https://www.youtube.com/watch?v=mVsZO_1T6qo
+
+
+
+## 22 september 2014
+Italo Disco!
+https://www.theparisreview.org/blog/2014/09/19/disco-purgatorio/
+
+
+Mycket läsvärd kritik av multikulturalismen och debattklimatet i Sverige - från vänster:
+
+> "Göran Adamson sammanfattar multikulturalism som en spegelbild av rasism, 1800-talsimperialism, konservatism och högerextremism. – Och detta ignoranta, naiva förhållningssätt är typiskt för det exotiserande vi möter i alla möjliga sammanhang numera. Man romantiserar den etniska minoriteten och pratar bara om god mat och dans, men de tråkiga sakerna håller man tyst om – hederskultur, antisemitism, intolerans, övergrepp mot homosexuella, synen på sekularism, på jämställdhet."
+
+> "Diskussionen om multikultur är svårt affekterad i Sverige, enligt Göran Adamson. Ideologin har blivit statsbärande; hösten 1999 var det inte bara högskolan som fick i uppdrag att cementera den etniska mångfaldens fördelar, utan samtliga statliga myndigheter. Alla frågor kring multikulturalismens konsekvenser som inte är odelat positiva diskvalificeras och beskrivs som högerextrema och rasistiska, menar Adamson, som själv förlorat en gammal vän på grund av sin bok."
+http://m.malmo.lokaltidningen.se/.../artikler/712319277/1293
+
+## 20 september 2014
+
+En av Sveriges bästa komiker Peter Wahlbeck i högform.
+https://www.youtube.com/watch?v=93kU1KTiZ4E
+
+En av de roligaste sketcherna i Klungans föreställning Stämning från 2006.
+https://www.youtube.com/watch?v=0mL6MlZxZ9w
+
+> "Well the problem with creating transcendental force fields is that it doesn't work."
+https://www.youtube.com/watch?v=1BOMU1KjQJo
+
+
+> "Multiculturalism has transformed diversity into its very opposite. Diversity used to mean the creation of a space for dissent and disagreement. Now it describes a space where dissent and disagreement are minimised in the name of respect and tolerance."
+Kenan Malik
+https://www.youtube.com/watch?v=1xlbu-PCAvA
+
+## 19 september 2014
+
+> "OK Jazz, later renamed TPOK Jazz (an acronym of Tout Puissant Orchestre Kinshasa or "all-powerful Kinshasa orchestra"), was a rumba band in the Democratic Republic of the Congo, from June 1956 until December 1993."
+(from Wikipedia)
+https://www.youtube.com/watch?v=A9kXorogfxI
+
+## 18 september 2014
+The greatest hockey celebration of all time?
+https://www.youtube.com/watch?v=kI9vSIG3Ceg
+
+> "Why should we imagine that because once upon a time certain gallerygoers were troubled by something that they later came to admire, then it follows that anything that troubles a gallerygoer is necessarily worthy of admiration? Just because it makes you sick doesn’t mean that it’s any good."
+https://www.nybooks.com/articles/2014/09/25/cult-jeff-koons/
+
+## 17 september 2014
+
+From Sergii Pasternak: Ok,I accept the challenge from Joakim Frögren
+ and publish a list of ten books that have influenced me to some extent.
+Я приймаю виклик від Joakim Frögren і публікую довільний список з 10 книжок, які вразили мене або істотно вплинули на моє життя.
+Hermann Hesse    The Glass Bead Game
+Friedrich  Nietzsche      Ecce Homo
+Ivan Bahrianyi     Garden of Gethsemane
+Albert Camus      The Myth of Sisyphus
+Homer       The Odyssey
+Mikhail Bulgakov      The Master and Margarita
+Patrick Suskind        Amnesie in Litteris
+Niccolo Machiavelli      The Prince
+Georg Wilhelm Friedrich Hegel     Elements of the Philosophy of Right
+Ernst Theodor Amadeus Hoffmann     The Life And Opinions Of the Tomcat Murr
+I hereby nominate three persons mentioned  below to list 10 books that have made a strong impact on their lives.
+В свою чергу, я номіную Valentyn Tsykhan
+, Oleksii Kuvitanov
+ та Slavik Sokalo
+  прийняти цей виклик та навести список з 10 літературних творів, які справили на них найбільший вплив.
+
+> "Om skillnaden i sysselsättningsgrad mellan inrikes och utrikes födda ska förklaras med enbart eller främst diskriminering borde skillnaden mellan invandrargrupperna förklaras av att de utsätts för diskriminering i motsvarande olika grad. I så fall skulle bosnier vara mycket mer utsatta för strukturell rasism än jugoslaver (åtta procentenheters skillnad i sysselsättning), utrikes födda som bott här i 1-4 år vara nästan dubbelt så mycket diskriminerade som de som varit här i 20 år eller mer, och lågutbildade skulle vara utsatt för nästan 50 procent mer strukturell rasism än högutbildade utrikes födda. Det håller inte."
+https://www.svd.se/trottsam-mytbildning-om-ett-rasistiskt-sverige
+
+
+TEN BOOKS THAT HAVE STAYED WITH ME
+Several of you lately have been sending me this 10 books challenge list — wherein, off the top of your head, you list 10 books that have been important to you in your life. Some of you have asked for mine. Here it is: 
+PASSING, by Nella Larsen
+AUSTERLITZ, by W.G. Sebald
+TOMBOY, by Nina Bouraoui
+XAVIER, by Mare Kandre
+THAT'S ALL, by Marguerite Duras
+IN SEARCH OF LOST TIME, by Marcel Proust
+CRIME AND PUNISHMENT, by Fyodor Dostoyevsky 
+THE PERIODIC TABLE, by Primo Levi
+THE HOUR OF THE STAR, by Clarice Lispector
+NEW COLLECTED POEMS, by Tomas Tranströmer
+I hereby nominate Ilona Kyykoski, Ragnhild Naas and Sergii Pasternak to list 10 books that have been important to you in your life.
+
+## 16 september 2014
+
+Leonard Cohen is back with a new album. Listen here!
+https://www.npr.org/2014/09/15/347480040/first-listen-leonard-cohen-popular-problems
+
+
+## 15 september 2014
+
+Moderaternas uppgång och fall. En välformulerad betraktelse av den alltid läsvärde Per Gudmundson.
+http://blog.svd.se/ledarbloggen/2014/09/15/som-valvakan-2006-fast-tvartom/
+
+Jenny Diski is a great essayist. Sadly she has recently been diagnosed with cancer...
+https://www.lrb.co.uk/the-paper/v36/n17/jenny-diski/a-diagnosis
+
+Alice Teodorescu gjorde redan för fyra år sedan en mycket klok analys av orsaken till SD:s valframgång. Dessvärre är den artikeln lika aktuell idag. Det krävs helt enkelt att de andra partierna för en bättre integrationspolitik för att de ska kunna vinna tillbaka de till SD förlorade väljarnas förtroenden. Om de uppenbara utmaningarna vi står inför när det gäller migration helt ignoreras eller bagatelliseras av de andra partierna kommer SD bara att växa sig starkare och starkare.
+https://www.aftonbladet.se/debatt/article12522027.ab
+
+## 13 september 2014
+
+Siamo in vena di giochetti eh? Allora questa e´ la classifica ma ho probabilmente lasciato fuori libri molto belli
+Herman Hesse Il giuoco delle perle di vetro
+Svetlana Alleluyeva Venti lettere ad un amico
+P.P.Pasolini La religione del mio tempo
+Marguerite Duras Quaderni della guerra
+Martin Gayford La casa gialla. Van Gogh, Gauguin: nove settimane turbolente ad Arles 
+Tolstoy Resurrezione
+Bruno Bettleheim Recollections and Reflections
+James Joyce Ulysses
+A.P. Sinnett a Vita straordinaria di Helena Petrovna Blavatsky 
+Camilo Jose' Cela L'alveare
+Nomino Tatjana Bodenham, Anders Österholm
+ e  Joakim Frögren
+. Please list the ten books that have had the most influence on your life so far.
+
+## 3 september 2014
+
+> "Vi kunna så härligt språka
+> fast ej i vagn vi åka:
+> Ty du kan få 
+> en plats ändå,
+> på min bicykel gjord för två."
+Gösta Ekman - Isabella
+https://www.youtube.com/watch?v=K-AFwAulcc8
+
+## 1 september
+
+Om du liksom jag vill lära dig mer om klassisk musik kan jag rekommendera CD-revyn (numera Musikrevyn) i Sveriges Radio P2 på söndagar kl. 12.03 - 14.00, eller på webben när du vill.
+https://sverigesradio.se/gruppsida.aspx?grupp=19882
+
+The Case of the Arabic Noirs
+https://www.theparisreview.org/blog/2014/08/20/the-case-of-the-arabic-noirs/
+
+Smärtsamt om frihet
+https://www.expressen.se/kultur/smartsamt-om-frihet/
+
+Evert och Sven-Bertil på Gröna Lund
+https://www.oppetarkiv.se/video/1220009/evert-och-sven-bertil-pa-grona-lund
+
+Iggy Pop - Car songs
+https://www.bbc.co.uk/programmes/b04g785z
+
+
+## 31 augusti 2014
+
+> "Maurice de Guérins liv illustrerar den komplicerade relationen mellan litteraturen och den katolska kyrkan i Frankrike. Han hör hemma främst i den tidiga franska romantiken, präglad av Chateaubriands förhoppning om att litteraturen skulle kunna fungera som stöd för kyrkan och Gud. Den senare romantiken med namn som Victor Hugo och Lamartine hade istället ambitionen att ersätta kyrkan och Gud med litteraturen."
+https://www.dixikon.se/litterar-och-kulturell-resa-i-sydvastra-frankrike-iichateau-cayla/
+
+Allan Edwall - Den lilla bäcken (live)
+https://www.youtube.com/watch?v=IphpPrT2xwU
+
+Allan Edwall - När små fåglar dör (live)
+https://www.youtube.com/watch?v=VN00Cs-cJkQ
+
+## 28 augusti 2014
+
+1,400 children sexually exploited ("The report described rapes by multiple perpetrators, mainly from Britain's Pakistani community...") - The price being payed today for people's fear of being thought racist.
+https://www.dailymail.co.uk/news/article-2734694/It-hard-appalling-nature-abuse-child-victims-suffered-1-400-children-sexually-exploited-just-one-town-16-year-period-report-reveals.html
+
+Abida Parveen Sings Bulleh Shah
+https://www.youtube.com/watch?v=lZmFJ6HPEsQ
+
+## 24 augusti 2014
+
+Varken offer eller bödel
+https://forlag.hstrom.se/bok/kultur/197-albert-camus-nilsson-jenny-maria.html
+
+
+Fången i akademien 
+> "Om den akademiska textgenren har min favoritsociolog Arlie Russell Hochschild i en bok fört ett åskådligt resonemang. Hon diskuterar de första obduktioner unga läkarstudenter deltar i och hur man försöker minimera deras spontana obehag genom att täcka över ansikte och könsorgan, ibland också händerna, på liket. I en fotnot låter hon förstå att det vetenskapliga språket gör något liknande:
+
+>”Det är ett redskap för en institutionell kontroll över känslorna. Överanvändningen av passiva verbformer, undvikandet av ’jag’, preferensen för latiniserade substantiv och för det abstrakta framom det konkreta är alltsammans medel att skapa ett avstånd mellan läsare och ämne och att begränsa det känslomässiga engagemanget.”"
+
+https://unt.se/kultur-noje/fangen-i-akademin-3313530.aspx
+
+## 22 augusti 2014
+
+> "Nu skulle Montaigne, som bara var anställd på försök men sedan många år, hjälpa Rousseau med att kopiera ett viktigt kontrakt. Det var bara det att kopiatorn aldrig fungerade sedan den där knepige Derrida alltid var i färd med att dekonstruera den."
+https://www.dixikon.se/jul-charles-pepinplaton-la-gaffe/
+
+Last night I went to the Cinema to see Ruben Östlund's new film "Force Majeure", a dark but very comical psychological dissection of the nuclear family.  I can warmly recommend it.
+https://www.youtube.com/watch?v=KJmzTNdY98g
+
+## 21 augusti 2014
+Andy Warhol Eating a Hamburger
+https://www.youtube.com/watch?v=sUd4L1oSXoE
+
+A great show in which Iggy Pop plays his favourite songs. Each episode has a different theme.
+https://www.bbc.co.uk/programmes/b03yblbx
+
+## 19 augusti 2014
+
+Is the LRB the best magazine in the world?
+https://www.theguardian.com/books/2014/mar/09/london-review-books-lrb-best-magazines-world-mary-kay-wilmers
+
+Radka Toneff - Ballad of the Sad Young Men (live, 1977)
+https://www.youtube.com/watch?v=yQnVUDQvm2Y
+
+## 16 augusti 2014
+
+Har du sett min lilla mor?
+Svabba golv på ett kontor.
+Liten flitig svettig tant.
+Tjänar liten slant.
+Kalla händer stela knän.
+Söker vård hos Stockholms län.
+Trippar sen på sjukan in.
+Trillar snart av pinn.
+
+Ja, det är både synd och skam
+huru livet dundrar fram
+över små och svaga.
+Dom är att beklaga.
+
+Har du sett min lilla far?
+Vilken skojig kropp han har.
+Sjukpension så fin och trygg
+på grund av utnött rygg.
+Inte längre spika hus.
+Framtid framstår inte ljus.
+Men kan slöa om han vill
+och även supa till.
+
+Ja, det är både synd och skam...
+
+Syster min är denna tös.
+Fyra barn och arbetslös.
+Inte längre ung och vild,
+fyrti bast och skild.
+Ganska vresig av sig nu,
+denna före detta fru.
+Skönhet, lycka, älskogshopp,
+det har hon givit opp.
+
+Ja, det är både synd och skam...
+
+Och den som ser så jävlig ut
+är min äldre brorsa Knut.
+Klagar alltid när vi ses
+på sin benprotes.
+Verka slut med brorsa Knut,
+tyckes mer och mer suput.
+Det var mycket mera krut
+uti Knut förut.
+
+Ja, det är både synd och skam...
+
+Men titta nu på lilla jag.
+Skillnad som på natt och dag.
+Blanka skor och ledig stil.
+Tio meter bil.
+Röra pulver helt diskret
+i små prydliga paket,
+Vilka säljs i hemlighet.
+Gör mig glad och fet.
+
+Men, det är både synd och skam...
+https://www.youtube.com/watch?v=ck93Y-UvoIM
+
+
+> "Förra året utkom Apter med boken ”Against world literature: On the politics of untranslatability” (Verso, 2013) där hon argumenterar för att världslitteraturen – trots dess uttalade syfte att belysa och öka cirkuleringen av icke-västerländsk litteratur – till stora delar kommit att bli homogeniserande, liksom blind för språk- och kulturspecifika begrepp och koncept."
+
+> "Med utgångspunkt i teoretiker som Jacques Derrida, Gayatri Spivak, Samuel Weber, Barbara Johnson, Abdelfattah Kiltio och Édouard Glissant åskådliggör hon hur världslitteraturen kommit att tjäna marknadsdrivna och eurocentriska idéer om översättbarhet och universalitet, liksom bidragit till konsumtionen av främmande kulturer i lättsmälta och anglifierade omstöpningar – inte sällan under beteckningar som ”asiatisk litteratur” eller ”islamisk konst”. Den har i läsningar tenderat att reduceras till sociologi eller samhällskritik, berövad sina anspråk på estetik."
+
+> "Således var den främsta angreppspunkten mot Mo Yan, efter att han vunnit Nobelpriset 2012, avsaknaden av samhällskritik i hans böcker. Några liknande krav ställdes knappast på den modernistiska hyperesteten Tomas Tranströmer året före."
+https://www.svd.se/pa-spaning-efter-det-ooversattbara
+
+Ma jeunesse fout l'camp
+Tout au long d'un poème
+Et d'une rime à l'autre
+Elle va bras ballants
+Ma jeunesse fout l'camp
+A la morte fontaine
+Et les coupeurs d'osier
+Moissonnent mes vingt ans
+
+Nous n'irons plus au bois
+La chanson du poète
+Le refrain de deux sous
+Les vers de mirliton
+Qu'on chantait en rêvant
+Aux garçons de la fête
+J'en oublie jusqu'au nom
+J'en oublie jusqu'au nom
+
+Nous n'irons plus au bois
+Chercher la violette
+La pluie tombe aujourd'hui
+Qui efface nos pas
+Les enfants ont pourtant
+Des chansons plein la tête
+Mais je ne les sais pas
+Mais je ne les sais pas
+
+Ma jeunesse fout l'camp
+Sur un air de guitare
+Elle sort de moi même
+En silence à pas lents
+Ma jeunesse fout l'camp
+Elle a rompu l'amarre
+Elle a dans ses cheveux
+Les fleurs de mes vingt ans
+
+Nous n'irons plus au bois
+Voici venir l'automne
+J'attendrai le printemps
+En effeuillant l'ennui
+Il ne reviendra plus
+Et si mon cœur frissonne
+C'est que descend la nuit
+C'est que descend la nuit
+
+Nous n'irons plus au bois
+Nous n'irons plus ensemble
+Ma jeunesse fout l'camp
+Au rythme de tes pas
+Si tu savais pourtant
+Comme elle te ressemble
+Mais tu ne le sais pas
+Mais tu ne le sais pas
+
+https://www.youtube.com/watch?v=7ag2Bc9RCoQ
+
+Des années déjà 
+que je ne me vois pas, 
+je ne sens plus rien, 
+plutôt 
+
+Mon corps n'abrite 
+rien de moi, petite, 
+rien ne m'accrédite, 
+plus trop 
+
+Sensation d'être grande au coeur de la démence 
+Mon coeur et mon corps ne savent plus trop 
+mmmm 
+Mes souvenirs sont d'un temps bien plus fleuront 
+D'un temps, d'un aplomb, plus haut 
+
+Tellement sûre, j'étais 
+Tellement sure, j'étais 
+de ma nature, de ma jeunesse 
+Tellement sure, j'aurais aimé que ça dure, que je reste 
+
+A l'âge adulte 
+où les autres exultent, 
+où je sens l'insulte, 
+de trop 
+
+Marre de mon visage... 
+Remarque je tourne la page, 
+tourne mon héritage, 
+en lambaux 
+
+Tellement sûre, j'étais 
+Tellement sure, j'étais 
+de ma nature, de ma jeunesse 
+Tellement sure, j'aurais aimé que ça dure, que je reste 
+
+oh non-non-non-non 
+Tellement sure, j'aurais aimé que ça dure, que je reste 
+
+oh non-non-non-non 
+Tellement sure, j'aurais aimé que ça dure, que je reste
+https://vimeo.com/309186383
+
+
+
+On m'a vu dans le Vercors
+Sauter à l'élastique
+Voleur d'amphores
+Au fond des criques
+J'ai fait la cour a des murènes
+J'ai fais l'amour
+J'ai fait le mort
+T'etais pas née
+A la station balnéaire
+tu t'es pas fait prier
+J'etais gant de crin, geyser
+Pour un peu, je trempais
+Histoire d'eau
+
+La nuit je mens
+Je prends des trains
+a travers la plaine
+La nuit je mens
+Je m'en lave les mains.
+
+J'ai dans les bottes
+des montagnes de questions
+Ou subsiste encore ton écho
+Ou subsiste encore ton écho.
+J'ai fait la saison
+dans cette boite crânienne
+Tes pensées, je les faisais miennes
+T'accaparer, seulement t'accaparer
+d'estrade en estrade
+J'ai fait danser tant de malentendus
+Des kilomètres de vie en rose
+Un jour au cirque
+Un autre a chercher a te plaire
+dresseur de loulous
+Dynamiteur d'aqueducs
+
+La nuit je mens
+Je prends des trains a travers la plaine
+La nuit je mens
+effrontément
+
+J'ai dans les bottes
+des montagnes de questions
+Ou subsiste encore ton écho
+Ou subsiste encore ton écho.
+On m'a vu dans le Vercors
+Sauter à l'élastique
+Voleur d'amphores
+Au fond des criques
+J'ai fait la cour a des murènes
+J'ai fais l'amour
+J'ai fait le mort
+T'etais pas née
+La nuit je mens
+Je prends des trains a travers la plaine
+La nuit je mens Je m'en lave les mains.
+J'ai dans les bottes des montagnes de questions
+Ou subsiste encore ton écho
+Ou subsiste encore ton écho.
+
+La nuit je mens...
+https://www.dailymotion.com/video/x3j5k9i
+
+## 15 augusti
+
+- Alors mon cher Luambo, quand on a bien mangé, bien bu et ensuite qu'est-ce qu'on fait mon cher?
+- Oui, mon cher Mangwana, c'est très simple: On danse!
+- On danse avec la musique...
+- On danse avec le Tout Puissant OK Jazz!
+- OK Jazz?
+- OK Jazz!
+- Le grand maître Luambo Makiadi?
+- Exactement!
+- Yeah! Attaquer!
+
+https://www.youtube.com/watch?v=ecdUDfUgSK4
+
+
+
+## 14 augusti 2014
+
+> "What Syria’s experience makes clear is that the polio crisis is not simply a result of conflict or war, as leading WHO and UNICEF officials claim. After all, polio has not recurred in such conflict-ridden countries as South Sudan, the Central African Republic, or the Democratic Republic of Congo. Polio did not even break out in Iraq during the eight years of war and turmoil following the US invasion of 2003. Yet it took only some two years of fighting in Syria for polio to reappear—and only another six months for it to spread to Iraq. Syria stands out as an epicenter of polio’s reemergence—after an eighteen-year absence—because of the extraordinary brutality of the government."
+
+> "And polio is hardly the only disease of concern emanating from Syria. There are hundreds of cases of multidrug resistant tuberculosis on top of a measles epidemic. There are outbreaks of bloody diarrhea in Raqqa, hepatitis in Hasseke, typhoid in Hamas, and leishmaniasis across Aleppo and even the fatal version, visceral leishmaniasis, in Idlib. Malaria, unheard of in Syria, has recently been found in Lattakia. Many of these problems originated in years of governmental neglect and have been greatly aggravated by the military’s wartime atrocities."
+
+> "When the government becomes the primary source of a public-health problem, as Syria is today for polio and a host of other threats to global health, it becomes a wholly inappropriate and unreliable partner for public-health efforts. Yet WHO and UNICEF, as UN agencies, have until now taken the position that it cannot act without the government’s consent, putting partnership with a brutal dictatorship over their responsibility to public health. It is too early to determine whether the new UN Security Council resolution will significantly change that calculation. But it shouldn’t require Security Council action for public-health officials to recognize that when government abuse is the cause of a public health crisis, WHO should either change its usual methodology of deferring to that government or bring in another organization without the same institutional constraints. The children and people of Syria—and the world—deserve no less."
+https://www.nybooks.com/daily/2014/08/12/syria-threat-polio/
+
+## 13 augusti 2014
+
+Jacques Brel - Jaurès
+
+Ils étaient usés à quinze ans
+Ils finissaient en débutant
+Les douze mois s'appelaient décembre
+Quelle vie ont eu nos grands-parents
+Entre l'absinthe et les grand-messes...
+Ils étaient vieux avant que d'être
+Quinze heures par jour le corps en laisse
+Laissent au visage un teint de cendre
+Oui, notre Monsieur oui notre bon Maître
+Pourquoi ont-ils tué Jaurès ?
+Pourquoi ont-ils tué Jaurès ?
+
+On ne peut pas dire qu'ils furent esclaves
+De là à dire qu'ils ont vécu
+Lorsque l'on part aussi vaincu
+C'est dur de sortir de l'enclave
+Et pourtant l'espoir fleurissait
+Dans les rêves qui montaient aux yeux
+Des quelques ceux qui refusaient
+De ramper jusqu'à la vieillesse
+Oui notre bon Maître, oui notre Monsieur
+Pourquoi ont-ils tué Jaurès ?
+Pourquoi ont-ils tué Jaurès ?
+
+Si par malheur ils survivaient
+C'était pour partir à la guerre
+C'était pour finir à la guerre
+Aux ordres de quelques sabreurs
+Qui exigeaient du bout des lèvres
+Qu'ils aillent ouvrir au champ d'horreur
+Leurs vingt ans qui n'avaient pu naître
+Et ils mouraient à pleine peur
+Tout miséreux, oui notre bon Maître
+Couvert de prèle, oui notre Monsieur
+
+Demandez-vous, belle jeunesse
+Le temps de l'ombre d'un souvenir
+Le temps du souffle d'un soupir
+Pourquoi ont-ils tué Jaurès ?
+Pourquoi ont-ils tué Jaurès ?
+
+https://www.dailymotion.com/video/x2saabi
+
+> "Brecht’s story is the fascinating one of the contrarian in adversity; perhaps that’s why it’s so disappointing that the British, with their feeling for the free spirit, the underdog (Robin Hood their Schweyk or Eulenspiegel), don’t get him."
+
+> "Brecht was a prodigy to set beside Rimbaud and Keats, a superior and controlled and reflexively self- invented being, a “singular sensibility”. Parker is careful not to say that Brecht was brilliant because he was unwell, but unwellness is part of his picture of the man and his genius, as it tends to be part of ours nowadays, no matter the individual."
+https://www.reddit.com/r/literature/comments/2dj5ag/rescuing_brecht_bertolt_brecht_a_literary_life_by/
+
+
+> "The frontiers of the new Caliphate declared by Isis on 29 June are expanding by the day and now cover an area larger than Great Britain and inhabited by at least six million people, a population larger than that of Denmark, Finland or Ireland."
+https://www.lrb.co.uk/the-paper/v36/n16/patrick-cockburn/isis-consolidates
+
+
+Jacques Brel - Jaurès
+(English translation)
+They were worn out at fifteen
+They neared the end right from the start
+It was December all the year round
+What a life our grandparents had
+Between absinthe and high mass!
+They were old before being born
+Bodies on a leash fifteen hours a day
+Turned their faces ashen grey
+Yes our Lordship, yes our good Master
+Why did they kill Jaurès?
+Why did they kill Jaurès?
+If it can’t be said they were slaves
+That’s no reason to claim they had a life
+When you start up already defeated
+It’s hard to get out of your patch
+And yet hope flourished
+In the dreams that came to the eyes
+Of the few who refused
+To grovel until old age
+Yes our good Master, yes our Lordship
+Why did they kill Jaurès?
+Why did they kill Jaurès?
+If, God forbid, they survived
+It was to go off to the war
+It was to snuff it in the war
+Under orders from some swashbucklers
+Who grudgingly demanded
+That they go and gamble their stillborn youth
+In the battlefield of horror
+And they died in full terror
+All destitute, yes, our good Master
+With priests’ blessings, yes, our Lordship
+Ask yourselves, you bright young things
+Just long enough for a fleeting memory
+Just long enough to let out a sigh
+Why did they kill Jaurès?
+Why did they kill Jaurès?
+
+Il était une fois Jaurès...
+https://www.dixikon.se/litterar-och-kulturell-resa-i-sydvastra-frankrike-i/
+
+## 10 augusti 2014
+
+> "But other minorities, just as vulnerable to the wrath of ISIS, have neither international support nor nearby refuge. And ISIS seems to have identified them for special persecution."
+
+> "The Yazidis: Numbering roughly 500,000, and concentrated around Sinjar, this group is ethnically Kurdish and adheres to a faith that has some aspects of ancient Zoroastrianism. Many Iraqi Muslims refer to Yazidis as “devil-worshipers,” because one of the faith’s foundational narratives of a fallen angel is similar to that of shaitan (or Satan) in Islam. When I traveled to Sinjar in 2003, my Iraqi colleagues, Sunni and Shiite alike, used the term “devil-worshipers” as a joke, even a term of endearment. ISIS, however, is taking the false claim of satanism as deadly serious. Hundreds, possibly thousands, of Yazidis have already been killed and tens of thousands have been driven into the mountains around Sinjar, where they are exposed to the elements as well as ISIS execution squads."
+
+The Iraqi Minorities in ISIS's Crosshairs
+https://www.theatlantic.com/international/archive/2014/08/the-iraqi-minorities-in-isiss-crosshairs/375745/
+
+
+## 5 augusti 2014
+
+> " “All I wanted was to live with my pictures,” Gurlitt said, but of course who knows how many original owners of the works would have said the same, had Hitler’s henchmen not stolen the art from them. In Gurlitt’s ruin, and the liberation of captive art, one could also make out the twisted echoes of families discovered hiding in attics, of fleeing refugees unmasked on trains."
+https://www.nybooks.com/articles/2014/06/19/art-hitler-hated/
+
+> "Vi har en extremt stor möjlighet att kombinera olika byggstenar i identiteten, men samtidigt blir det allt svårare att skilja mellan centrala och perifera dimensioner. Till följd av förlusten av traditioner och stabiliserande institutioner blir vi tvungna att vända blicken inåt, men samtidigt minskar självets förmåga att artikulera och expressivt gestalta den egna identiteten, vilket bland annat beror på att samhället inte fungerar som dialogpartner. Det beror på att det förhåller sig neutralt till val av livsstilar och föreställningar om det goda livet. Det finns inget att ta spjärn emot, inget som kan svara på våra identitetsutkast. När kontexten blir flyktig drivs vi till att göra oss själva till centrum men samma flyktighet gör det också svårare för oss att artikulera oss själva."
+http://tidskriftenrespons.se/artikel/tvanget-att-betrakta-oss-sjalva/
+
+## 27 juli 2014
+
+> "The ‘secret room’ is, literally, the chamber where S&M is practised, but it seems also to refer to the forbidden imagination that fuelled Robbe-Grillet’s writing, and which, by his own mischievous account, prevented him from committing murder. Until Un Roman sentimental, he allowed us only glimpses of his chambre secrète, but it was there all along."
+
+Adam Shatz' has written a wonderful review of A Sentimental Novel by Alain Robbe-Grillet (translated by D.E. Brooke). I have never read anything by the French author Shatz' refers to as the 'pope of the nouveau roman’, but now I am realising I should.
+https://www.lrb.co.uk/the-paper/v36/n15/adam-shatz/at-the-crime-scene
+
+
+> "Love of a people in particular can lead us to engage in moral calculations that betray the principles we claim to hold, even to defend the indefensible."
+
+> "Enormously liberating when it was developed, the critique of Orientalism has often resulted in a set of taboos and restrictions that inhibit critical thinking. They pre-emptively tell us to stop noticing things that are right under our noses, particularly the profound cleavages in Middle Eastern societies—struggles over class and sect, the place of religion in politics, the relationship between men and women; struggles that are only partly related to their confrontation with the West and with Israel."
+
+> "The theoretical intricacy of academic anti-Orientalism, its hermetic and sophisticated language, sometimes conceals an attempt to wish away the region's dizzying complexity in favor of the old, comforting logic of anticolonial struggle. Anti-Orientalism will continue to provide a set of critical tools and a moral compass, so long as it is understood as a point of departure, not a destination. Like all old maps, it has begun to yellow. It no longer quite describes the region, the up-ender of all expectations, the destroyer of all missionary dreams."
+
+https://www.thenation.com/article/archive/writers-or-missionaries/
+
+## 25 juli 2014
+
+> "Se promener seul dans la grande ville. Plonger dans l'estomac de Rio comme Jonas dans celui de la baleine. Errer, bader, lanterner, balocher, divaguer, dériver. Faire une halte pour acheter des cartes postales. Réclamer des timbres. Demander la direction du bureau de poste. Repartir, perdre son chemin, le chercher, le retrouver. Les Cariocas aimaient rendre service au voyageur égaré. Tarder, s'amuser, vagabonder. Acheter le journal, entrer dans une librairie. Marcher, circuler, vadrouiller. Parfois, faire une pause dans un petit bar, commander un jus de fruit. Et à la fin, un peu étourdi, monter dans un taxi pour revenir à son point de départ."
+(Sébastien Lapaque: Théorie de Rio de Janeiro, p. 49. Actes Sud, 2014.)
+
+Michelle Dooley Mahon, one of the  poets I met in Tranås a couple of weeks ago during the Fringe Festival, has written a letter to the Swedish king about her experience of Sweden. Please read it and share it (to make sure His Majesty gets it)!
+https://shellakeypookey.blogspot.com/2014/07/the-girl-who-wrote-to-king-of-sweden.html
+
+## 19 juli 2014
+
+> "The fact that Singapore and Shanghai are better governed than Detroit or Los Angeles is hardly news. The issue is whether authoritarian governance is sustainable in the face of demands by the middle class to be treated like citizens, and whether such governance is capable of dealing with radical shocks like a long-term economic slowdown of the kind currently predicted for China."
+
+> "Stiglitz argues that the fiscal crisis of the liberal state is to be attributed squarely to three interrelated phenomena: rising income inequality, money power in politics, and systemic tax avoidance by the superrich and globalized corporations."
+
+> "The liberal state is in crisis, basically, because its regulatory, legal, and political institutions have either been captured, or have been laid siege to, by the economic interests they were created to control. While the liberal state was never intended to enforce distributive equality, it was always supposed to keep the power of big money from suffocating competition and corrupting the political system. This is the task it struggles to perform today and must recover fully if it is to regain the confidence and support of the broad mass of its citizens."
+
+> "...the genius of the West lay in its invention of rights respecting limited government, grounded in the revocable trust of ordinary people. It was this set of robust and enduring institutions that made us what we once were and what, if we restore their constitutional vigor, we can be once again."
+
+https://www.nybooks.com/articles/2014/07/10/are-authoritarians-winning/
+
+## 16 juli 2014
+
+> "Som en del eurocentriske nordmænd har også jeg i perioder tænkt, at Peter Handke er den største nulevende forfatter. I månedsvis har jeg været intenst optaget af hans bøger, hans skrift... og hver gang har jeg pludselig fået nok, og passionen er slået om i irritation, væmmelse, pludselig kan jeg ikke holde ham ud, hans pathos, hans solipsisme, hans verdensfjerne svampesamlere, alle disse selvoptagede nostalgiske vandrere, dette næsten fuldkomne fravær af levende kvinder."
+http://www.vagant.no/retfaerdighed-for-norge/
+
+Håkan Lindgren, som alltid är klok och nyanserad, har läst Gleen Greenwalds bok "No Place to Hide: Edward Snowden, the NSA, and the U.S. Surveillance State" i norsk översättning och skriver här om den.
+http://www.vagant.no/den-globala-overvakningsstaten/
+
+## 15 juli 2014
+
+Litteraturbloggaren Bernur, eller Björn Kohlström som han heter egentligen, skriver om Bokvennen, en norsk tidskrift att lägga på minnet. I senaste numret vigs 30 sidor åt Marguerite Duras då det i år var 100 år sedan hon föddes.
+bernur: Marguerite Duras hänförelse
+https://howsoftthisprisonis.blogspot.com/2014/07/marguerite-duras-hanforelse.html
+
+
+
+## 5 juli 2014
+Isn't it wonderful to first get to hear about an upcoming movie made in your country, through an article in an Italian magazine? 
+If you click on the article below you will find a trailer with English subtitles in the  middle of it.
+https://www.internazionale.it/opinione/francesca-spinelli/2014/07/04/i-brividi-di-kiruna
+
+## 3 juli 2014
+
+> "Americans are learning how to lose, and soccer is teaching them how to do it."
+https://www.theparisreview.org/blog/2014/07/02/hooray-for-losers/
+
+
+Hur man överlever sitt inre Finspång och kommer ut starkare på andra sidan. 
+Välskriven artikel av linköpingssonen Jan Gradvall. (Varför har han ingen buss uppkallad efter sig när t.ex. den  högst mediokre komikern Anders Johansson har det? Förmodligen har han vägrat.)
+https://www.gradvall.se/artiklar.asp?entry_id=1091
+
+
+## 1 juli 2014
+
+> “Football is a simple game; 22 men chase a ball for 90 minutes and at the end the Germans win."
+- Gary Lineker
+
+## 27 juni 2014
+Också denna intressanta artikel är signerad Håkan Lindgren. Gå till hakanlindgren.se för att hitta fler.
+https://www.svd.se/bredbandsbolagen-bor-finansiera-journalistiken
+
+Håkan Lindgren, är i mitt tycke en av Sveriges allra främsta kulturskribenter. Idag avslutar han den kulturdebatt om identitet i SvD, som han inledde för en tid sedan. Uppmanar er att läsa alla debattartiklarna i denna intressanta och aktuella fråga. Här är ett utdrag ur Lindgrens avslutande debattinlägg:
+
+> "Fortsätter den utvecklingen väntar en värld med slum i ena änden och gated communities i den andra. Vid det laget behövs inga argument längre, men om någon ändå skulle föra situationen på tal kommer båda sidor genast att peka finger åt varandra: ”Det är dom som gör att vi måste bo så här!”
+
+> "De problem vi står inför – från ekonomi till klimat – kräver gemensamma lösningar. I det läget är identitetstänkandet inte till någon hjälp. Det är svårt att se att det kommer att göra något annat än att förvärra situationen. Identitetstänkandet innebär att ett annat projekt än det moderna projektet har tagit sin början, antimodernt snarare än postmodernt: tillbaka till familj, religion, etnicitet och könsroller."
+
+https://www.svd.se/individen-ar-ingen-losning
+
+## 21 juni 2014
+
+Att handla ekologiskt eller inte ekologiskt, that is the question. Inte alltid så lätt att som konsument förstå vad som är bäst för miljön. Mer saklighet behövs i debatten. Ser gärna att Miljöpartiets "miljövänliga" förslag granskas mer kritiskt i svensk media. Journalister, hjälp oss att bli bättre konsumenter och att stödja det lantbruk som är mest miljövänligt på riktigt!
+”Osaklig smutskastning av gröna svenska jordbruket”
+https://www.dn.se/debatt/osaklig-smutskastning-av-grona-svenska-jordbruket/
+
+## 19 juni 2014
+
+Det finns sjukdomar som är värre än sjukdomar,
+det finns smärtor som aldrig gör ont, inte ens i själen,
+men som värker värre än andra.
+Det finns en ångest i drömmen som är verkligare
+än den som livet ger oss, det finns förnimmelser
+som bara uppfattas i fantasin
+men tillhör oss mer än vårt eget liv.
+Det finns så mycket som inte finns
+men som finns, ja - finns där, dröjande,
+och dröjande blir det vårt, blir det vi...
+Över den breda, dunkelt gröna floden
+måsarnas vita cirkumflexer...
+Och över själen de fåfänga vingslagen
+från något som aldrig ska finnas, och det är allt.
+Slå i mera vin; livet är noll och intet.
+(Dikt av Fernando Pessoa i svensk tolkning av Anders Cullhed)
+
+
+
+## 16 juni 2014
+
+> "The most pressing task of reform must be to strongly limit the risks posed to the economy by large banks and other financial institutions that borrow so much. The best way to achieve this goal is to explicitly limit the extent to which they borrow to fund their operations...
+
+> "The difference between assets and liabilities is its shareholders’ equity, also known simply as a company’s “equity” or “net worth”: what the bank’s shareholders own (as opposed to all the assets that the bank owns, or the liabilities it owes). At the end of 2011, Morgan’s net worth was $184 billion, roughly 8 percent of its assets. This is far better than had been the case before the crisis but still substantially less than the finance professors or Admati and Hellwig think is necessary. The finance professors believe that ratio should be at least 15 percent. Admati and Hellwig recommend a minimum of 20 percent."
+https://www.nybooks.com/articles/2014/06/05/the-right-way-to-control-banks/
+
+An interesting new journal I just found out about. Each issue celebrates three artists "whose work has yet to reach its deserved audience". The latest issue (No. 4) features the Brazilian author Clarice Lispector, who's novel "The Passion According to G.H.", I found quite breathtaking when I read it some years ago. 
+
+https://www.musicandliterature.org/
+
+
+
+> "It’s an established, engraved and undisputed fact that the dish invented by the English had been reinvented by Brazil, we’d made it our own, ours to feast on.”
+http://bookanista.com/invention-futebol/
+
+## 15 juni 2014
+
+"Tumi Je Aamar" from the Bengali movie Harano Sur (1957) starring Uttam Kumar and Suchitra Sen.
+https://www.youtube.com/watch?v=gD0Yza1AiBc
+
+
+"Surjo Dobar Pala" from the Bengali movie Indrani (1958) starring Uttam Kumar and Suchitra Sen.
+https://www.youtube.com/watch?v=PPbH1UyoLkQ
+
+## 13 juni 2014
+
+Great cover of Nusrat Fateh Ali Khan's song Tere Bin Nahi.
+Jomy George & Jeffrey Iqbal - Tere Bin (Nusrat)
+https://www.youtube.com/watch?v=vdlmCsh3sNU&fbclid=IwAR0eXfynLGtyAO6nnIp5pRs4rASNEp58gda0tFuXBT5_lL7pwUjDV5dC0iY&app=desktop
+
+Dexys på italienska med Anders Limpar som sångare istället för Kevin Rowland.
+Ratapignata | Sa Bertula
+https://www.youtube.com/watch?v=z-xUdeJY0S8
+
+## 12 juni 2014
+
+Haru'nte snacka me morsan än?
+https://www.youtube.com/watch?v=LDOXgJWWJcg
+
+
+Se Ruben Östlunds inlägg i debatten om Kulturmannen. Filmklippet är från hans nya film som visades i Cannes i år och som förhoppningsvis dyker upp på svenska biografer snart. Jag längtar efter att få sitta i salongen och drabbas av de känslostormar hans filmer alltid framkallar hos mig, där frustration, ilska och rädsla beblandas med spontana gapskratt omvartannat. Så var det när jag såg såväl De ofrivilliga som Play. Den här gången är det alltså mansrollen och kärnfamiljen som dissekeras. Mmm...
+https://www.dn.se/kultur-noje/kulturdebatt/se-ett-forsvarstal-av-ruben-ostlund/
+
+
+
+Årstider
+Text och musik: Allan Edwall, 1979
+Nu är den sköna sommarn här
+med lust och fägring stor.
+Och bruna ben och tunna skor
+och mesen som i holken bor
+och doft av hägg och kaffekask
+och burken full av mask.
+Och knappt har solen sjunkit ner
+så börjar den gå opp.
+Och i fabriken är det stopp,
+på skorstenspipans högsta topp
+har sädesärlan byggt sitt bo.
+Allt andas frid och ro.
+Och vår fabriks direktör
+går det strålande för.
+Han tog kosingen med sig
+och stack, som dom gör
+från en tyngande skatt.
+Och nu ryktas det att
+han med skattmasen leker tafatt.
+Sen är den sköna hösten här
+som vi har väntat på,
+med gula löv och mogna bär
+och äppelträn med äpplen på
+och kylig natt och blåsig dag
+och litet socialbidrag
+som man kan dra sig fram uppå
+så varför gnälla då?
+Och vår chefsingenjör
+går det strålande för.
+Han fick kosing av staten
+att fortsätta för
+lika glatt som förut
+någonstans söderut
+går han på parti och minut.
+Sen är den sköna vintern här
+som vi har väntat på.
+På vintrig hård och frusen mark
+vi färdas på en gammal spark.
+Först biten till förmedlingen
+och sedan åter hem igen
+med samma avslag som förut.
+Och sen tar vintern slut.
+Men fabrikens kamrer
+får vi knappast se mer,
+för han fick det som lagen
+åt brottslingar ger.
+Något år får han gå
+i en kåk ful och grå
+för dom siffror som han trodde på.
+Sen kommer vårens sköna tid
+som vi har väntat på
+när bäcken porlar glad och strid
+och lärkan sina drillar slå
+och marken gror och går i knopp
+och uppåt stiger trädens sav
+som det blir sommar av.
+Och nu ska udda bli jämnt
+det har kommunen bestämt.
+För fabriken, som utsikten
+länge har skämt,
+och där möda och slit
+luktar svett, blod och skit,
+tar man bort med en dos dynamit.
+Sen är den sköna sommarn här
+med lust och fägring stor
+och bruna ben och tunna skor
+och mesen som i holken bor
+och kaffekask och dragspelslåt
+och getingbon och motorbåt
+och Mjölkcentralens kalla glass
+och utedans och utedass
+och dunket från en fiskesmack
+och juice i tetrapack.
+Och man är ledig och fri
+och det skiter man i
+för det kvittar snart hur det ska bli.
+
+https://www.youtube.com/watch?v=A3dYahnNp6U
+
+
+
+## 11 juni 2014
+
+Frukten
+
+Griper kniven
+från bordets blanka kakel
+frukten från skålen
+solen från himlen
+hotar saften
+med silvervass egg
+ristar en linje
+i den glödande kinden
+och borrar
+naglarna
+i den gula huden
+kränger av skalet
+och känner lukten av köttet
+slickar saften från armen
+suger upp gnistrande droppar med läpparna
+från den drypande apelsinen
+sörplande monolog i eftermiddagsljuset
+öppnar den
+i halva månar
+intar den 
+båt för båt.
+
+Ur Dagen ditt ljus: Dikter 1981-1994 av Pia Tafdrup
+
+
+
+## 9 juni 2014
+
+Mats Nileskär, who since 1978  has been running a weekly soulmusic show on Swedish Radio, asks the question nobody has dared to ask before him.
+https://www.youtube.com/watch?v=jZ2uyiR-nCM
+
+
+I just read the essay "Mourning and Melancholia" (1917) by Sigmund Freud in Swedish translation in an issue of a Swedish Psychoanalytical Journal I bought long time ago at the local Salvation Army store (but until now have not read). For all of you who (like me) have experienced periods of melancholia and would like to understand this mental state better I just want to say: Read this essay! It may not give all the answers but it surely opens up your mind to see yourself and your experiences in a new light. In Swedish the title is Sorg och melankoli.
+https://www.english.upenn.edu/~cavitch/pdf-library/Freud_MourningAndMelancholia.pdf
+
+From a Swedish radio prank call show in the 90's called "Hassan". Once I actually lived on the second floor with Luca (Luca Narduzzi) and Christina Steixner-Buisson. We shared a flat in Lyon, France in 2001-2002.
+
+Hassan - My name is Luka
+https://www.youtube.com/watch?v=9kVBq8YN2Bg
+
+
+
+## 6 juni 2014
+
+Today, 6 June, we celebrate our National Day in honour of two historical events. In 1523 Gustav Vasa was elected king and on the same date in 1809 our country adopted a new constitution. On this special day I would like to share with you "Fredmans Epistel 48" or "Solen glimmar blank och trind",
+written by the Swedish poet and composer Carl Michael Bellman (1740-1795) and here interpreted by one of my favourite singers, Fred Åkerström (1937-1985).
+https://www.oppetarkiv.se/video/1123934/solen-glimmar-blank-och-trind-solen-glimmar-blank-och-trind
+
+
+
+## 5 juni 2014
+Ständigt läsvärd denne Gustafsson...
+https://www.expressen.se/kultur/en-prekar-stabilitet/
+
+Last week I visited London for the first time in 20 years. Harrods or Madame Tussauds was not on my list this time. Instead I was, among other things I should say, longing to see Matisse's Cut-Outs at Tate Modern, praised in Times Literary Magazine as possibly "the most uplifting show ever to be put on in London". These are big words, but I was not disappointed. There is a huge difference to experience, or should I say perceive, the real works compared to printed versions of them. The latter seems strangely flat and lifeless compared to the originals. I say strangely since, as T.J. Clark discusses in his review, Matisse is not far from decoration and Warhol's wallpaper in some of these works. But on the other hand in other pieces shown here he is not that far from Giotto either. If you are interested in art and the question of what makes an art work modern, then I recommend you to read this article and if you just want an uplifting art experience, go see the show.
+https://www.lrb.co.uk/the-paper/v36/n11/t.j.-clark/the-urge-to-strangle
+
+
+
+
+
+## 2 juni 2014
+On the train to Gothenburg feeling like this. Next stop: Skövde!
+https://www.youtube.com/watch?v=Dh4qI9fYegY&fbclid=IwAR1Bg3xqPEqWCaInD9HuoNZxuofyMpBG7WSGJ3f91XRMvB1sJdR_2UCMBWg&app=desktop
+
+## 25 maj 2014
+Today it is Mother's Day in Sweden. Here is a Nigerian classic to all the mothers out there:
+https://www.youtube.com/watch?v=XFqgZFdBJyU
+
+## 22 maj 2014
+Tomorrow I'll be there.
+https://www.youtube.com/watch?v=M2r97Fo_HWE
+
+## 18 maj 2014
+
+Ali Farka Toure - Hawa Dolo
+https://www.youtube.com/watch?v=_HaTbW3tzoQ
+
+
+Jag gick genom medeltidsstaden
+på kvällen eller i gryningen,
+jag var mycket ung eller ganska gammal.
+Jag hade ingen klocka på mig,
+ingen almanacka, bara mitt envisa blod,
+som mätte den ändlösa sträckan.
+Jag kunde börja om från början med ett liv
+som var mitt eller inte mitt,
+allting verkade så lätt,
+fönstren i husen var inte helt stängda,
+andras öden stod på glänt.
+Det var vår eller försommar,
+varma husväggar,
+luften lika mjuk som apelsinskal,
+jag var mycket ung eller ganska gammal,
+jag kunde välja, jag kunde leva.
+(Dikten "Jag gick genom medeltidsstaden" ur Adam Zagajewski: Törst, Norstedts förlag 2003,)
+
+
+## 17 maj 2014
+Soukous from the early 80's: Langa Langa Stars
+> "Langa Langa Stars were a popular DR Congo soukous band in the 1980s. The band had the peculiarity of featuring as much as seven lead vocalists, nicknamed the "7 Patrons of Langa Langa Stars". Langa Langa Stars were founded in 1981 as a spin-off of Papa Wemba's band Viva La Musica, which in turn may be described as a spin-off of the seminal soukous band Zaiko Langa Langa; it can thus be classified in the so-called "Clan Langa Langa", a large set of soukous bands that are directly or indirectly derivative of Zaiko. The "7 Patrons" were Esperant Djenga Ka, Djuna Djanana, Emeneya Mubiala, Dindo Yogo (all 4 of them ex-Viva La Musica), Evoloko Jocker, Djo Mali and Bozi Boziana (all 3 ex-Zaiko Langa Langa). In the early 1980s the Langa Langa Stars were one of the most popular soukous band in Congo. Their dance style sansaku became a craze of the times. They disbanded in 1984."
+(from Wikipedia)
+https://www.youtube.com/watch?v=5F4LeQYnqTU
+
+
+## 16 maj 2014
+
+Skandinaviens bästa kulturtidskrift heter Vagant. Den ges ut i Norge och innehåller artiklar och essäer på danska, norska och svenska. Precis som bloggaren Björn Kohlström (bernur) skriver är det senaste numret oerhört innehållsrikt och inspirerande även om texter på danska och norska är en utmaning att ta sig igenom som svensk, men övning ger färdighet! Tidskriften utkommer fyra gånger per år och jag rekommenderar varmt att teckna en prenumeration.
+https://howsoftthisprisonis.blogspot.com/2014/05/mikrohistorien-upprepar-sig.html?m=1&fbclid=IwAR2mlpHxwggagSrOA7CGcguZaPWRGZIRuTcV_7ak_IGLYom3Xe8-FsbIRqA
+
+Who was Lucian Freud? Julian Barnes seeks to get beyond the myths and manages in this excellent essay to portrait the English painter in less charming but more truthful colors.
+
+https://www.lrb.co.uk/the-paper/v35/n23/julian-barnes/heart-squasher?fbclid=IwAR20w2z7MOnZcUAj2R5KJv5GsS-h9FNjFHQ89l217VN7hhhPolMp4Dcw06A
+
+## 15 maj 2014 
+
+Mehdi Hassan goes Head to Head with reformist muslim Irshad Manji. Check out the other episodes of Head to Head too! It's a great show.
+https://www.aljazeera.com/program/episode/2013/6/23/what-is-wrong-with-islam-today/
+
+
+Soukous from the late 80's, early 90's: Kanda Bongo Man
+> "Kanda Bongo Man revolutionized soukous by encouraging guitar solos after every verse and even sometimes in the beginning of the song. His form of soukous gave birth to the kwassa kwassa dance rhythm where the hips move back and forth while the hands move to follow the hips."
+(from Wikipedia)
+
+
+Congo Kanda Bongo Man Live II
+https://www.youtube.com/watch?v=yzNzsuidbF8
+
+
+To tunger har mitt hjerte.
+to viljer har mitt sinn.
+Jeg elsker deg bestandig,
+og jeg blir aldri din.
+Dypt i det røde mørket
+fikk livet dobbelt form.
+Der kurrer det en due.
+der hvisler det en orm.
+To tunger har mitt hjerte
+hør på det likevel.
+Bli hos meg og gå fra meg
+og frels meg fra meg selv.
+(Dikten "To tunger" av Inger Hagerup)
+
+
+
 ## 14 maj 2014
 
 In 1991, I was living in Arese (close to Milan) together with my family. My parents were teachers at the Swedish School there. In that year the Swedish singer Carola won the Eurovision Song Contest, but in Italy of course nobody cared, why should they? We were soon taught that there was another song contest that was more important in this country: Festival di Sanremo. So, we watched the show and later on even bought the CD with all the songs. It turned out to be a big hit in our family; played frequently even after we returned home to Sweden. One of the tracks that I liked the most was a song that I later found out had become sort of the anthem of Sardinia. And to my surprise, each and every Italian I ran into seemed to know it. Often when I meet my sister, one of us sooner or later starts singing it spontaneously, and the other one laughs and sing along. Here it is: "Spunta la luna dal monte".
 
-## 15 maj 2014
+## 12 maj 2014
 
 Les Frères Déjean - La Foi
 "Compas, also known as Compas direct in French, or konpa dirèk in Creole or simply konpa, is a modern méringue, the national music of Haiti that people have been dancing and singing since the 1800s. Popularized by Haitian sax and guitar player Nemours Jean-Baptiste in 1955, compas is the main music of many countries such as Dominica and the French Antilles, etc." 
