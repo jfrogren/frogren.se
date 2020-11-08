@@ -3975,7 +3975,24 @@ https://www.nybooks.com/articles/2014/06/19/art-hitler-hated/
 > "Vi har en extremt stor möjlighet att kombinera olika byggstenar i identiteten, men samtidigt blir det allt svårare att skilja mellan centrala och perifera dimensioner. Till följd av förlusten av traditioner och stabiliserande institutioner blir vi tvungna att vända blicken inåt, men samtidigt minskar självets förmåga att artikulera och expressivt gestalta den egna identiteten, vilket bland annat beror på att samhället inte fungerar som dialogpartner. Det beror på att det förhåller sig neutralt till val av livsstilar och föreställningar om det goda livet. Det finns inget att ta spjärn emot, inget som kan svara på våra identitetsutkast. När kontexten blir flyktig drivs vi till att göra oss själva till centrum men samma flyktighet gör det också svårare för oss att artikulera oss själva."
 http://tidskriftenrespons.se/artikel/tvanget-att-betrakta-oss-sjalva/
 
+## 30 juli 2014
+
+En av alla underbara låtar Christian Falk spelade i sitt Sommarprogram.
+https://www.youtube.com/watch?v=Bn3N3szzl5s
+
+## 28 juli 2014
+
+Imponerad av den poetiska skärpan och suggestiva kraften i Athena Farrokhzads brandtal mot rasism och fascism (i Sommar i P1), samtidigt som jag finner det beklagligt att hon så starkt sätter sin tilltro till revolutionär kommunism för att komma till bukt med orättvisorna i samhället.
+
+https://sverigesradio.se/avsnitt/403967
+
+
+
 ## 27 juli 2014
+
+Lyssnade på Sommar i P1 med Christian Falk idag och blev upprymd och nedstämd om vartannat av att höra honom berätta om sitt liv och om sin kärlek till musiken. Upprymd för att det så tydligt i hans levnadsberättelse framkom vilken kraft som finns i musiken. Nedstämd av tanken på att han inte längre finns ibland oss då han dog i cancer för bara några dagar sedan. Vila i frid, Christian Falk och tack för din berättelse och all musik du skapade under ditt liv!
+https://sverigesradio.se/avsnitt/404139
+
 
 > "The ‘secret room’ is, literally, the chamber where S&M is practised, but it seems also to refer to the forbidden imagination that fuelled Robbe-Grillet’s writing, and which, by his own mischievous account, prevented him from committing murder. Until Un Roman sentimental, he allowed us only glimpses of his chambre secrète, but it was there all along."
 
@@ -4013,6 +4030,53 @@ https://www.nybooks.com/articles/2014/07/10/are-authoritarians-winning/
 
 ## 16 juli 2014
 
+Ma môme, ell' joue pas les starlettes
+Ell' met pas des lunettes
+De soleil
+Ell' pos' pas pour les magazines
+Ell' travaille en usine
+A Créteil
+
+Dans une banlieue surpeuplée
+On habite un meublé
+Elle et moi
+La fenêtre n'a qu'un carreau
+Qui donne sur l'entrepôt
+Et les toits
+
+On va pas à Saint-Paul-de-Vence
+On pass' tout's nos vacances
+A Saint-Ouen
+Comme famille on n'a qu'une marraine
+Quelque part en Lorraine
+Et c'est loin
+
+Mais ma môme elle a vingt-cinq berges
+Et j'crois bien qu'la Saint'Vierge
+Des églises
+N'a pas plus d'amour dans les yeux
+Et ne sourit pas mieux
+Quoi qu'on dise
+
+L'été quand la vill' s'ensommeille
+Chez nous y a du soleil
+Qui s'attarde
+Je pose ma tête sur ses reins
+Je prends douc'ment sa main
+Et j'la garde
+
+On s'dit toutes les choses qui nous viennent
+C'est beau comm' du Verlaine
+On dirait
+On regarde tomber le jour
+Et puis on fait l'amour
+En secret
+
+https://www.youtube.com/watch?v=wQIWmfgCoGI
+
+
+
+
 > "Som en del eurocentriske nordmænd har også jeg i perioder tænkt, at Peter Handke er den største nulevende forfatter. I månedsvis har jeg været intenst optaget af hans bøger, hans skrift... og hver gang har jeg pludselig fået nok, og passionen er slået om i irritation, væmmelse, pludselig kan jeg ikke holde ham ud, hans pathos, hans solipsisme, hans verdensfjerne svampesamlere, alle disse selvoptagede nostalgiske vandrere, dette næsten fuldkomne fravær af levende kvinder."
 http://www.vagant.no/retfaerdighed-for-norge/
 
@@ -4025,6 +4089,25 @@ Litteraturbloggaren Bernur, eller Björn Kohlström som han heter egentligen, sk
 bernur: Marguerite Duras hänförelse
 https://howsoftthisprisonis.blogspot.com/2014/07/marguerite-duras-hanforelse.html
 
+I was there, in Teater Jarmo in Tranås yesterday evening, and if you were not, you missed something! I can truly recommend this video to anyone who has a passion for words. It gives you an insight into three poets' minds and inspires you to read, read, read and write, write, write.
+https://www.youtube.com/watch?v=Nep4DxP2wTE
+
+## 13 juli 2014
+
+Stop wasting your time! Use the Twitter that targets the one person who actually wants to hear about your day: 
+Twitteleh - Twitter for your Jewish Mother.
+https://www.youtube.com/watch?v=uhilbbeUc0g
+
+## 10 juli 2014
+
+On a sunny day like today, I wish I was on a sailing boat in the middle of an ocean or a big lake lying on the deck listening to this song:
+
+    Tout ce qui tremble et palpite
+    Tout ce qui lutte et se bat
+    Tout ce que j'ai cru trop vite
+    A jamais perdu pour moi
+    
+(C'est beau la vie - Jean Ferrat)
 
 
 ## 5 juli 2014
@@ -4032,7 +4115,26 @@ Isn't it wonderful to first get to hear about an upcoming movie made in your cou
 If you click on the article below you will find a trailer with English subtitles in the  middle of it.
 https://www.internazionale.it/opinione/francesca-spinelli/2014/07/04/i-brividi-di-kiruna
 
+## 4 juli 2014
+
+Amazing guitarist Jordan "Reignwolf" Cook was, together with Sam Smith, the best act I saw on Bråvallafestivalen last week. Check him out! I was there together with my friend Rashed Emdadul Kabir.
+https://www.reignwolf.com/
+
+Sulay Abubakarr & Afro National (Sierra Leone) - Baby Anna
+https://www.youtube.com/watch?v=RUkIpM6xblo
+
+
 ## 3 juli 2014
+
+> "Tu te souviens l'année dernière ou tu avais injuriée ma mère? Cette année-ci, ma mère c'est ta belle-mère!"
+
+Sam Mangwana avec le grand maître, sourcier de la guitare, Franco Luambo Makiadi et Le Tout Puissant OK Jazz.
+https://www.youtube.com/watch?v=JVeY4HR5VM8
+
+
+Nut Bread (Riešutų duona, 1977) is a Lithuanian movie I first saw in 2004 at a time when I had recently returned to Linköping after a couple of months in Kaunas and Vilnius. A German guy I had met there recommended it and gave me a burned DVD. The plot is well summarized on IMDB: "Lithuania, 1977. Memories of childhood, adolescence, and first love in a small provincial town, shown through complexity of human relations..." A bit in the same style as Roy Andersson's "En kärlekshistoria" and Lasse Hallströms "Mitt liv som hund", I would say, if you are familiar with these Swedish films. I wouldn't call it a great movie, but it includes some wonderfully poetical and funny scenes and it really captures the beauty and "tragekomedija" of the Lithuanian provincial life. If you are not in love with the country before, you will be after watching it.
+https://www.youtube.com/watch?v=xmsM8waRwvU
+
 
 > "Americans are learning how to lose, and soccer is teaching them how to do it."
 https://www.theparisreview.org/blog/2014/07/02/hooray-for-losers/
@@ -4043,10 +4145,51 @@ Välskriven artikel av linköpingssonen Jan Gradvall. (Varför har han ingen bus
 https://www.gradvall.se/artiklar.asp?entry_id=1091
 
 
+Franck Lassan, le dernier dandy de Léopoldville - Nuit des Fêtes
+https://www.youtube.com/watch?v=RTE6WWPQqEA
+
+
+Så här låg det till i själva verket. Jag var i detta fall inte tillräckligt källkritisk när jag läste denna nyhet utan spred den vidare till er helt utan vidare. Det kan jag bara beklaga. Ska försöka vara mer kritisk nästa gång jag möts av en lika sensationell nyhet.
+https://sverigesradio.se/artikel/5901550
+
+## 2 juli 2014
+
+Les salles obscures des grandes villes françaises me manquent terriblement cette après-midi. J'aimerais bien aller au cinéma pour voir ce film maintenant, mais ce n'est pas possible.
+https://www.newyorker.com/culture/richard-brody/dvd-of-the-week-le-bonheur
+
+My friend @Sergii Pasternak playing bass in the band STANZA on Maidan Square in December 2013. They performed on a summer stage without winter coats as you can see, "and it was -20°C that night, my hands will remember that forever!", Sergii wrote to me.
+Please also observe that this is a bootleg music video, not an actual live record from Maidan. The band is going to release an official video on this song later. The lyrics are about Ukraine rising from it’s knees, that’s the main message of the song, according to Sergii.
+Thanks for letting me share this video, Sergii Pasternak!
+https://www.youtube.com/watch?v=uLsQKDKtEGI
+
 ## 1 juli 2014
 
 > “Football is a simple game; 22 men chase a ball for 90 minutes and at the end the Germans win."
 - Gary Lineker
+
+A fascinating documentary about the American street photographer Vivian Maier.
+https://www.fotosidan.se/cldoc/fotografer/ikvall-visas-dokumentaren-om-gatufotografen-vivian.htm
+
+## 30 juni 2014
+
+Allez L'Algérie! In this beautiful song the pianist and composer Maurice El Mediouni pays tribute to his hometown Oran in Algeria.
+https://www.dailymotion.com/video/x7359p
+
+Go Nigeria, go!
+https://www.youtube.com/watch?v=d2AhO4jUUuU
+
+There is so much wonderful music coming from Brazil! Here is another favourite I found recently.
+Ultimo Desejo - Aracy de Almeida
+https://www.youtube.com/watch?v=0GK4qXcRoSM
+
+## 28 juni 2014
+
+RIP Bobby Womack (1944-2014)
+https://www.youtube.com/watch?v=L5JehlTaH7g
+
+This beautiful samba is the anthem of Sardegna Pride 2014, the LGTBQ Festival of Sardinia in Italy, taking place today in Alghero. You can read more about the Festival on sardegnapride.org. Pride is generally celebrated the last Saturday of June all over the world, in commemoration of the anniversary of the Stonewall Riots.
+https://www.youtube.com/watch?v=CyCAXKn4Ijk
+
 
 ## 27 juni 2014
 Också denna intressanta artikel är signerad Håkan Lindgren. Gå till hakanlindgren.se för att hitta fler.
@@ -4060,11 +4203,35 @@ Håkan Lindgren, är i mitt tycke en av Sveriges allra främsta kulturskribenter
 
 https://www.svd.se/individen-ar-ingen-losning
 
+## 25 juni 2014
+
+Congratulations, Greece!
+https://www.youtube.com/watch?v=4UV6HVMRmdk
+
+
+## 22 juni 2014
+
+Spent the evening listening and dancing to Colombian cumbia at the café in Tullhuset (Södra Stånggatan 2) in Linköping together with my friend Prof Toubeh Moutaz. The café is open Tuesday-Sunday 15-21 the whole summer and have live music every Wednesday and Sunday at 19.
+La Sonora Dinamita - La Pollera Colora
+https://www.youtube.com/watch?v=raW309TfeQ8
+
+
 ## 21 juni 2014
 
 Att handla ekologiskt eller inte ekologiskt, that is the question. Inte alltid så lätt att som konsument förstå vad som är bäst för miljön. Mer saklighet behövs i debatten. Ser gärna att Miljöpartiets "miljövänliga" förslag granskas mer kritiskt i svensk media. Journalister, hjälp oss att bli bättre konsumenter och att stödja det lantbruk som är mest miljövänligt på riktigt!
 ”Osaklig smutskastning av gröna svenska jordbruket”
 https://www.dn.se/debatt/osaklig-smutskastning-av-grona-svenska-jordbruket/
+
+Speaking of wisdom, Mr. Walter Tappert, do you know who is the smartest one of the Three Wise Men? See them compete in "Jeopardy!" here and find out.
+https://www.dailymotion.com/video/x2trroc
+
+## 20 juni 2014
+
+La mort est du domaine de la foi. The French psychanalyst Jacques Lacan (1901-1981) speaks about death and faith. A genius or just a narcissistic charlatan? I know to little about him to be able to judge, but this speech haunts me I have to admit.
+https://www.youtube.com/watch?v=x-hZyYfoMOA
+
+
+
 
 ## 19 juni 2014
 
@@ -4086,8 +4253,78 @@ Slå i mera vin; livet är noll och intet.
 (Dikt av Fernando Pessoa i svensk tolkning av Anders Cullhed)
 
 
+## 17 juni 2014
+
+Varan-TV: Hallå bibblan, hur är läget?
+https://www.dailymotion.com/video/x2tcc96
+
+Varan-TV: Undertryckt ilska
+https://www.youtube.com/watch?v=7xOei2zc5YE
+
+A Ghanaian Highlife Classic
+E.T. Mensah - Day by day
+https://www.youtube.com/watch?v=5IyRIEVTAis
+
+
+A Ghanaian Afrobeat Classic 
+Ebo Taylor - Love and death
+https://www.youtube.com/watch?v=19SLUVaOfCs
+
+
+Lord Kitchener - Birth of Ghana (1957)
+This day will never be forgotten -
+The sixth of March 1957,
+When The Gold Coast successfully
+Get the Independence officially.
+
+(Ghana!) Ghana is the name!
+(Ghana!) We wish to proclaim!
+We will be jolly, merry and gay,
+The sixth of March - Independence Day.
+Doctor Nkrumah went out of way
+To make The Gold Coast what it is today,
+He endeavoured continually
+To bring us freedom and liberty.
+
+(Ghana!) Ghana is the name!
+(Ghana!) We wish to proclaim!
+We will be jolly, merry and gay,
+The sixth of March - Independence Day.
+The Doctor begun as educator,
+Then he became popular leader.
+He continued to go further,
+And now he is Ghana's Prime Minister!
+
+(Ghana!) Ghana is the name!
+(Ghana!) We wish to proclaim!
+We will be jolly, merry and gay,
+The sixth of March - Independence Day.
+The national flag is a lovely seen
+With beautiful colors: red, gold and green,
+And the black star in the center
+Representing the freedom of Africa.
+
+(Ghana!) Ghana is the name!
+(Ghana!) We wish to proclaim!
+We will be jolly, merry and gay,
+The sixth of March - Independence Day.
+Congratulation from Haile Sellasie
+Was proudly received by everybody.
+He particularly comment
+On the Doctor's move to self-government.
+
+(Ghana!) Ghana is the name!
+(Ghana!) We wish to proclaim!
+We will be jolly, merry and gay
+The sixth of March - Independence Day
+
+https://www.youtube.com/watch?v=c-imEGXqHis
+
 
 ## 16 juni 2014
+
+The best Brazilian music has an intimacy to it that can be found nowhere else. Listen for example to João Gilberto's self-titled album from 1973 and Rosa Passos "Rosa" from 2006. No other language sounds as warm and sexy when whispered closely into a microphone, not even French. But that is not the only explanation. Practice makes perfect,is the other, and it is hard to imagine a country with a climate, landscape and atmosphere more inviting to the kind of campfire singing featured below, than Brazil. 
+https://www.youtube.com/watch?v=5PBdU7z13cw
 
 > "The most pressing task of reform must be to strongly limit the risks posed to the economy by large banks and other financial institutions that borrow so much. The best way to achieve this goal is to explicitly limit the extent to which they borrow to fund their operations...
 
