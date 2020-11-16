@@ -11,13 +11,13 @@ pygmentscodefences = true
 pygmentscodefencesguesssyntax = true
 
 googleAnalytics = "UA-123-45"
-disqusShortname = "ezhil-demo"
+# disqusShortname = "ezhil-demo"
 
 summaryLength = 20
 
 [params]
 	subtitle = "— där jag samlar mina intryck av sånt som gör avtryck"
-	disableDisqusTypes = ["page"]
+	# disableDisqusTypes = ["page"]
 	featherIconsCDN = true
 	mode = "auto" # "dark", "auto", "light"
 	# customCSS = "css/custom.css"  # Custom CSS applied to default styles.
