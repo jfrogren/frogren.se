@@ -4,7 +4,7 @@ title = "frogren.se"
 theme = "ezhil"
 paginate = 5
 
-copyright = "© Copyright notice"
+copyright = "© Joakim Frögren"
 
 pygmentsstyle = "solarized-dark"
 pygmentscodefences = true
