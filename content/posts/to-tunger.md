@@ -6,17 +6,18 @@ draft: false
 
 
 
->To tunger har mitt hjerte.
->to viljer har mitt sinn.
->Jeg elsker deg bestandig,
->og jeg blir aldri din.
->Dypt i det røde mørket
->fikk livet dobbelt form.
->Der kurrer det en due.
->der hvisler det en orm.
->To tunger har mitt hjerte
->hør på det likevel.
->Bli hos meg og gå fra meg
->og frels meg fra meg selv.
+>To tunger har mitt hjerte.<br>
+>to viljer har mitt sinn.<br>
+>Jeg elsker deg bestandig,<br>
+>og jeg blir aldri din.<br>
+>Dypt i det røde mørket<br>
+>fikk livet dobbelt form.<br>
+>Der kurrer det en due.<br>
+>der hvisler det en orm.<br>
+>To tunger har mitt hjerte<br>
+>hør på det likevel.<br>
+>Bli hos meg og gå fra meg<br>
+>og frels meg fra meg selv.<br>
+<br>
 (Dikten "To tunger" av Inger Hagerup)
 
