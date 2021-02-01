@@ -34,8 +34,6 @@ https://www.svd.se/den-har-texten-ar-en-levande-anakronism?fbclid=IwAR3ayoehhFUQ
 
 Typiskt svenskt? Midsommar, lingonsylt och Bruce Springsteen på Ullevi. Men också regeln att när kylan årligen infinner sig - som den oundvikligen gör på dessa breddgrader vid den här tiden - så ska den alltid, ifrån högre ort, liknas vid ett kok stryk. Ska det signalera en luthersk bestraffning för att vi under sommaren kunnat lapa sol och lösa sudoku i bara mässingen?
 
-
-
 ## 6 augusti 2017
 
 > "People develop attachments to places, they move, they develop attachments to new places, and to new people. If you think people have a right to do that, then the question is how to support it. If you don’t, then you need to ask yourself: what level of violence are you prepared to tolerate to keep people in their place?"
@@ -4384,6 +4382,7 @@ Och i fabriken är det stopp,
 på skorstenspipans högsta topp
 har sädesärlan byggt sitt bo.
 Allt andas frid och ro.
+
 Och vår fabriks direktör
 går det strålande för.
 Han tog kosingen med sig
@@ -4391,6 +4390,7 @@ och stack, som dom gör
 från en tyngande skatt.
 Och nu ryktas det att
 han med skattmasen leker tafatt.
+
 Sen är den sköna hösten här
 som vi har väntat på,
 med gula löv och mogna bär
@@ -4399,6 +4399,7 @@ och kylig natt och blåsig dag
 och litet socialbidrag
 som man kan dra sig fram uppå
 så varför gnälla då?
+
 Och vår chefsingenjör
 går det strålande för.
 Han fick kosing av staten
@@ -4406,6 +4407,7 @@ att fortsätta för
 lika glatt som förut
 någonstans söderut
 går han på parti och minut.
+
 Sen är den sköna vintern här
 som vi har väntat på.
 På vintrig hård och frusen mark
@@ -4414,6 +4416,7 @@ Först biten till förmedlingen
 och sedan åter hem igen
 med samma avslag som förut.
 Och sen tar vintern slut.
+
 Men fabrikens kamrer
 får vi knappast se mer,
 för han fick det som lagen
@@ -4421,6 +4424,7 @@ för han fick det som lagen
 Något år får han gå
 i en kåk ful och grå
 för dom siffror som han trodde på.
+
 Sen kommer vårens sköna tid
 som vi har väntat på
 när bäcken porlar glad och strid
@@ -4428,6 +4432,7 @@ och lärkan sina drillar slå
 och marken gror och går i knopp
 och uppåt stiger trädens sav
 som det blir sommar av.
+
 Och nu ska udda bli jämnt
 det har kommunen bestämt.
 För fabriken, som utsikten
@@ -4435,6 +4440,7 @@ länge har skämt,
 och där möda och slit
 luktar svett, blod och skit,
 tar man bort med en dos dynamit.
+
 Sen är den sköna sommarn här
 med lust och fägring stor
 och bruna ben och tunna skor
@@ -4445,6 +4451,7 @@ och Mjölkcentralens kalla glass
 och utedans och utedass
 och dunket från en fiskesmack
 och juice i tetrapack.
+
 Och man är ledig och fri
 och det skiter man i
 för det kvittar snart hur det ska bli.
@@ -4571,48 +4578,6 @@ Who was Lucian Freud? Julian Barnes seeks to get beyond the myths and manages in
 
 https://www.lrb.co.uk/the-paper/v35/n23/julian-barnes/heart-squasher?fbclid=IwAR20w2z7MOnZcUAj2R5KJv5GsS-h9FNjFHQ89l217VN7hhhPolMp4Dcw06A
 
-## 15 maj 2014 
-
-Mehdi Hassan goes Head to Head with reformist muslim Irshad Manji. Check out the other episodes of Head to Head too! It's a great show.
-https://www.aljazeera.com/program/episode/2013/6/23/what-is-wrong-with-islam-today/
-
-
-Soukous from the late 80's, early 90's: Kanda Bongo Man
-> "Kanda Bongo Man revolutionized soukous by encouraging guitar solos after every verse and even sometimes in the beginning of the song. His form of soukous gave birth to the kwassa kwassa dance rhythm where the hips move back and forth while the hands move to follow the hips."
-(from Wikipedia)
-
-
-Congo Kanda Bongo Man Live II
-https://www.youtube.com/watch?v=yzNzsuidbF8
-
-
-To tunger har mitt hjerte.
-to viljer har mitt sinn.
-Jeg elsker deg bestandig,
-og jeg blir aldri din.
-Dypt i det røde mørket
-fikk livet dobbelt form.
-Der kurrer det en due.
-der hvisler det en orm.
-To tunger har mitt hjerte
-hør på det likevel.
-Bli hos meg og gå fra meg
-og frels meg fra meg selv.
-(Dikten "To tunger" av Inger Hagerup)
-
-
-
-## 14 maj 2014
-
-In 1991, I was living in Arese (close to Milan) together with my family. My parents were teachers at the Swedish School there. In that year the Swedish singer Carola won the Eurovision Song Contest, but in Italy of course nobody cared, why should they? We were soon taught that there was another song contest that was more important in this country: Festival di Sanremo. So, we watched the show and later on even bought the CD with all the songs. It turned out to be a big hit in our family; played frequently even after we returned home to Sweden. One of the tracks that I liked the most was a song that I later found out had become sort of the anthem of Sardinia. And to my surprise, each and every Italian I ran into seemed to know it. Often when I meet my sister, one of us sooner or later starts singing it spontaneously, and the other one laughs and sing along. Here it is: "Spunta la luna dal monte".
-
-## 12 maj 2014
-
-Les Frères Déjean - La Foi
-"Compas, also known as Compas direct in French, or konpa dirèk in Creole or simply konpa, is a modern méringue, the national music of Haiti that people have been dancing and singing since the 1800s. Popularized by Haitian sax and guitar player Nemours Jean-Baptiste in 1955, compas is the main music of many countries such as Dominica and the French Antilles, etc." 
-(from Wikipedia)
-
-https://www.youtube.com/watch?v=H5bM0qTpAmU&fbclid=IwAR2AulW7p2HnKS1ibionsC_3pncIM5owx3He_ZxSyLh8lyY7DGd4xFsO7DY&app=desktop
 
 
 

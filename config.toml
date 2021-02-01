@@ -7,7 +7,7 @@ paginate = 5
 copyright = "© Joakim Frögren"
 
 pygmentsstyle = "solarized-dark"
-pygmentscodefences = true
+pygmentscodefeces = true
 pygmentscodefencesguesssyntax = true
 
 googleAnalytics = "UA-123-45"
