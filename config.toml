@@ -1,58 +1,65 @@
-baseURL = "https://www.frogren.se/"
-languageCode = "sv"
-title = "frogren.se"
-theme = "ezhil"
-paginate = 5
+baseURL = ""
+languageCode = "en"
+title = "arki.vet"
+theme = "aliquote"
+paginate = 10
+enableRobotsTXT = true
 
-copyright = "© Joakim Frögren"
+# disable
+pygmentsUseClasses = true
+pygmentsStyle = "bw"
+pygmentsCodefences = true
+pygmentsCodefencesGuessSyntax = true
 
-pygmentsstyle = "solarized-dark"
-pygmentscodefeces = true
-pygmentscodefencesguesssyntax = true
+[blackfriday]
+    fractions = false
 
-googleAnalytics = "UA-123-45"
-# disqusShortname = "ezhil-demo"
+[markup.goldmark.renderer]
+    unsafe= true
+
+[sitemap]
+    changefreq = "weekly"
+    priority = 0.5
+    filename = "sitemap.xml"
+
+[author]
+  name = "joafr"
 
 summaryLength = 20
 
 [params]
 	subtitle = "— där jag samlar mina intryck av sånt som gör avtryck"
-	# disableDisqusTypes = ["page"]
+	mainSections = ["tweet"]
 	featherIconsCDN = true
-	mode = "auto" # "dark", "auto", "light"
-	# customCSS = "css/custom.css"  # Custom CSS applied to default styles.
-	# customDarkCSS = "css/custom-dark.css"  # Custom styles applied to dark mode css.
-	# customJS = ["https://code.jquery.com/jquery-3.4.1.js", "js/custom1.js"]  # Custom JS scripts.
+	wc = true
 
-[[menu.main]]
-name = "Om"
-url = "/about"
-weight = 1
-
-[[menu.main]]
-name = "Noteringar"
-url = "/posts"
-weight = 2
+[outputs]
+  home = ["HTML", "RSS", "JSON"]
 
 [[menu.main]]
 name = "Texter"
-url = "/about"
-weight = 3
-
-[[menu.main]]
-name = "Taggar"
-url = "/tags"
-weight = 4
+url = "/post"
+weight = 1
 
 [[menu.main]]
 name = "Nu"
-url = "/about"
-weight = 5
+url = "/now"
+weight = 50
+
+[[params.social]]
+name = "Sök"
+icon = "search"
+url = "/search"
 
 [[params.social]]
 name = "Github"
 icon = "github"
 url = "https://github.com/jfrogren"
+
+[[params.social]]
+name = "Email"
+icon = "mail"
+url = "mailto:joakim@frogren.se"
 
 [[params.social]]
 name = "RSS"
@@ -61,3 +68,4 @@ url = "/index.xml"
 
 [taxonomies]
    tag = "tags"
+   category = "categories"
